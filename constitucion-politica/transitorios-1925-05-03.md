@@ -1,4 +1,4 @@
-P.O. 3 DE MAYO DE 1925
+P.O. 3 DE MAYO DE 1925.
 Art. 1o.- Mientras el H. Congreso no decrete el Reglamento para la instalación del Colegio Electoral formado por los presuntos Diputados, se estará en lo relativo a lo dispuesto por el Reglamento que sirvió para la instalación del Consejo Electoral que funcionó para declarar el H. Congreso Constituyente de este Estado en 1917
 Art. 2o.- A fín de que no sea interrumpido o restado el presente período Constitucional, por esta sola vez los ciudadanos presuntos Diputados, tomarán posesión de sus respectivos cargos, hasta el día treinta y uno de diciembre a las y veintienatro (sic) horas, sin perjuicio de que ellos hagan el examen de los expedientes electorales y declaratoria respectiva, tanto en la elección de Diputados, como en la de Gobernador, con sujeción a lo dispuesto por este Decreto.
 Art. 3o.- El presente decreto comenzará a surtir sus efectos legales, a partir del día de su promulgación.
