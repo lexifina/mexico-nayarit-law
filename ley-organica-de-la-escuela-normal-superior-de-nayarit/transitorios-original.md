@@ -6,3 +6,4 @@ Y en cumplimiento de lo dispuesto en la Fracción II del Artículo 69 de la Cons
 Lic. Roberto Gómez Reyes.- Rúbrica
 El Director General de Gobernación
 Lic. Héctor Velázquez Rodríguez.- Rúbrica.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
