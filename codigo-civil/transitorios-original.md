@@ -13,4 +13,4 @@ IGNACIO GONZALEZ BARRAGANALEJANDRO CRISTERNA RINCON
 Y en cumplimiento de lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic, su Capital, a los treinta días del mes de julio de mil novecientos ochenta y uno.
 El Secretario Gral. de Gobierno
 Dr. J. Jesús Osuna Gómez
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
