@@ -1,6 +1,8 @@
 TRANSITORIOS
 ARTICULO PRIMERO.- La presente Ley entrará en vigor el día primero de enero de 1984.
 ARTICULO SEGUNDO.- Se abroga la Ley de Hacienda Municipal que por decreto No. 6180 se publicó en el Periódico Oficial del Estado, de Fecha miércoles 26 de septiembre de 1979, sus posteriores modificaciones, reformas y adiciones, así como todas las disposiciones fiscales que contravengan lo dispuesto por la presente Ley.
+(ADICIONADO, P.O. 9 DE JULIO DE 1994)
+ARTICULO TERCERO. Las asociaciones religiosas constituidas en los términos de la Ley de asociaciones religiosas y culto público, no pagarán el Impuesto sobre Adquisición de Inmuebles establecido en esta Ley, por las adquisiciones que realicen hasta el 31 de diciembre de 1994.
 Dado En la Sala de Sesiones "Benito Juárez" del H. Congreso del Estado Libre y Soberano de Nayarit, en Tepic su Capital a los veintisiete días del mes de Diciembre de mil novecientos ochenta y tres.
 DIP. PRESIDENTE.
 LIC. JAVIER CARRILLO CASAS.
