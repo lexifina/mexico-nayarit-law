@@ -7,3 +7,4 @@ Y en cumplimiento de lo dispuesto en la Fracción II del Artículo 69 de la Cons
 EMILIO M. GONZALEZ.- RUBRICA.
 El Secretario General de Gobierno.
 JOSE FELIX TORRES HARO.- RUBRICA.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
