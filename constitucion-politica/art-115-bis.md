@@ -1,5 +1,5 @@
-(REFORMADO, P.O. 3 DE SEPTIEMBRE DE 1941)
-Art. 115 Bis.- La Hacienda Pública del Estado y de los Municipios, se formará de los impuestos, contribuciones, derechos, productos y aprovechamientos diversos que fije la Legislatura del Estado en los respectivos Presupuestos de Ingresos y planes de Arbitrios. En todo caso, las contribuciones que se asignen a los Ayuntamientos, deberán ser suficientes para las necesidades de sus respectivos Municipios; pero no podrán ser materia de impuestos Municipales la propiedad raíz, rústica o urbana, la agricultura, el ejercicio de profesiones y oficios, ni las herencias, legados o donaciones. La Legislatura, de acuerdo con el Ejecutivo, podrá conceder al os Ayuntamientos, participaciones en estos impuestos, según se estime conveniente.
+(REFORMADO, P.O. 28 DE DICIEMBRE DE 1983)
+Art. 115 Bis.- La Hacienda Pública del Estado y de los Municipios, se formará de impuestos, contribuciones, derechos, productos y aprovechamientos diversos que fije la Legislatura del Estado en las respectivas Leyes de Ingresos. En todo caso, las contribuciones que se asignen a los Ayuntamientos, deberán ser suficientes para las necesidades de sus respectivos Municipios, conforme a lo establecido por el Artículo 115 de la Constitución General de la República y quedarán facultados para celebrar convenios con el Estado, para que éste se haga cargo de algunas de las funciones relacionadas con la Administración de esas contribuciones.
 TITULO SEXTO
 CAPITULO UNICO
 De la hacienda Pública del Estado.
