@@ -1,0 +1,6 @@
+P.O. 4 DE JUNIO DE 2003
+ARTICULO PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
+ARTICULO SEGUNDO.- Los plazos a que hace referencia el artículo 38 de la Ley del Organo de Fiscalización que con este decreto se reforma serán aplicables en la presentación de las cuentas publicas, a partir del ejercicio fiscal del año 2003.
+ARTICULO TERCERO.- Los procedimientos resarcitorios que el Órgano hubiese iniciado con anterioridad a la entrada en vigor de esta ley, deberán sustanciarse de conformidad con las disposiciones vigentes al momento de iniciarse.
+ARTICULO CUARTO.- A efecto de dar cumplimiento al artículo 204 de la Ley Municipal para el Estado de Nayarit que con este decreto se reforma, la Comisión de Hacienda, Cuenta Pública y Presupuesto, deberá presentar al Pleno del Congreso los montos a los cuales deberán sujetarse los Ayuntamientos durante el ejercicio fiscal del año 2003 en las excepciones a los procedimientos de licitación pública para la adquisición de bienes y servicios, mismo decreto que en todo caso deberá estar aprobado y publicado a más tardar el 31 de diciembre del año 2002 .
+ARTÍCULO QUINTO.- El reglamento al que hace referencia la presente ley, deberá expedirse a más tardar en noventa días a partir de la entrada en vigor del presente decreto.
