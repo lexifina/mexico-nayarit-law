@@ -1,6 +1,6 @@
 Art. 2o. Se derogan las leyes, decretos y reglamentos vigentes en el Estado, en todo lo que se opongan al cumplimiento de la presente Constitución.
 (ADICIONADO, P.O. 25 DE AGOSTO DE 1943)
-TRANSITORIO (sic): El Ejercicio Constitucional de tres años que para los Ayuntamientos señala el Artículo 114 reformado de esta Constitución, entrará en vigor el primero de enero de mil novecientos cuarenta y seis.
+TRANSITORIO: (sic) El Ejercicio Constitucional de tres años que para los Ayuntamientos señala el Artículo 114 reformado de esta Constitución, entrará en vigor el primero de enero de mil novecientos cuarenta y seis.
 Dado en el Salón de Sesiones del Poder Legislativo del Estado de Nayarit, en Tepic, capital del Estado, a los cinco días del mes de febrero de mil novecientos dieciocho.
 PRESIDENTE
 J. TRINIDAD SOLANO.
