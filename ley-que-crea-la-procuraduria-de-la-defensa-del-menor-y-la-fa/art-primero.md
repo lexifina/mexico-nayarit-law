@@ -1,0 +1,1 @@
+ARTICULO PRIMERO.- La Procuraduría de la Defensa del Menor y la Familia en el Estado de Nayarit, es órgano jurídico de carácter público, que tendrá personalidad para representar a menores de edad ante las diversas Autoridades, entendiéndose que es menor en el ámbito civil el adolescente que no ha cumplido dieciocho años; y en el ámbito penal el que no haya cumplido dieciséis.

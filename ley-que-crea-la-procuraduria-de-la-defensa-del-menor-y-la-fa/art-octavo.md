@@ -1,0 +1,1 @@
+ARTICULO OCTAVO.- Además de la expresada representación legal subsidiaria de menores, la Procuraduría está facultada para intervenir en toda clase de situaciones conflictivas o que afecten el bienestar de la familia; por lo que entre otros casos, deberá gestionar y asegurar la subsistencia así como el adecuado desarrollo físico e intelectual de los menores.

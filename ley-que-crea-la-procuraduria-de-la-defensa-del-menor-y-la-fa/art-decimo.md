@@ -1,0 +1,1 @@
+ARTICULO DECIMO.- Las funciones de la Procuraduría de la Defensa del Menor y la Familia en el Estado de Nayarit, son de interés público, por lo que en el desarrollo de sus actividades podrá solicitar la asesoría y el auxilio de las Autoridades Federales, Estatales y Municipales.

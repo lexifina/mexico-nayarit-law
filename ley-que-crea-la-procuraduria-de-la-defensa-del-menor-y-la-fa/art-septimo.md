@@ -1,0 +1,1 @@
+ARTICULO SEPTIMO.- Como órgano tutelar la Procuraduría se apersonará ante las Instituciones especiales, para el tratamiento de menores infractores a que se refiere el párrafo cuarto del artículo 18 de la Constitución Política de los Estados Unidos Mexicanos.

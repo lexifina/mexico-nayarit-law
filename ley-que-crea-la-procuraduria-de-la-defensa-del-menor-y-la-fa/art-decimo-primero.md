@@ -1,0 +1,1 @@
+ARTICULO DECIMO PRIMERO.- Las Autoridades Judiciales del Estado darán intervención a los Procuradores, o a sus Delegados, en aquellos asuntos relativos a la Familia o a los Menores, de carácter civil o penal, cuando se considere de interés social, para lo cual se les notificará la iniciación de todo juicio de los antes mencionados.

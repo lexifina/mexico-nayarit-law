@@ -1,0 +1,1 @@
+ARTICULO SEXTO.- La Procuraduría rendirá su informe mensual en relación con sus actividades a la Presidencia del Patronato del Sistema para el Desarrollo Integral de la Familia Nayarit. Igual informe rendirán los Delegados a la Procuraduría.

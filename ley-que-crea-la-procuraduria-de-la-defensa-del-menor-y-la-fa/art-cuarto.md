@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- De la Procuraduría dependerán los Procuradores auxiliares, Asesores y Trabajadores Sociales que en su caso, fueren nombrados por la Presidencia del Sistema para el Desarrollo Integral de la Familia en Nayarit.

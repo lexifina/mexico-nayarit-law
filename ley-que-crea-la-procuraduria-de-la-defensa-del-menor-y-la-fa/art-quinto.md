@@ -1,0 +1,1 @@
+ARTICULO QUINTO.- La Procuraduría contará con Delegados en cada una de las cabeceras de los demás Municipios que comprenda la Entidad y sus titulares gozarán de las facultades que se le concedan en esta Ley a la misma Procuraduría.

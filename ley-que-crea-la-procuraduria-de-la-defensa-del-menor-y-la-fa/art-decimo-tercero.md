@@ -1,0 +1,1 @@
+ARTICULO DECIMO TERCERO.- Ante todo, la Procuraduría conlleva la función gestora del bienestar social y al efecto, sus promociones tenderán a conciliar los intereses y a mejorar las relaciones entre los miembros de la familia, con objeto de lograr su cabal integración armónica dentro de la comunidad.

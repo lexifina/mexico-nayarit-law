@@ -1,0 +1,1 @@
+ARTICULO DECIMO SEGUNDO.- En los casos a que se refiere el artículo anterior, los Procuradores o sus Delegados podrán aportar pruebas para que el Juez o Tribunal conozcan la verdad sobre los puntos controvertidos.

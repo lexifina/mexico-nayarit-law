@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- La Procuraduría de la Defensa del Menor y la Familia, depende del Sistema para el Desarrollo Integral de la Familia Nayarit y forma parte de las Autoridades del mencionado Organismo.
