@@ -1,3 +1,3 @@
-P.O. 27 DE NOVIEMBRE DE 1940
+P.O. 27 DE NOVIEMBRE DE 1940.
 ART. PRIMERO.- Los juicios de responsabilidad oficial que se encuentren instaurados en contra de Ayuntamientos en general o de CC. Regidores en particular, se declaran sujetos a la revisión del H. Congreso, para lo cual el Magistrado del Supremo Tribunal o el Procurador General de Justicia del Estado, en su caso, remitirán al propio Congreso los expedientes respectivos dentro del término de diez días contados desde la fecha en que entre en vigor esta disposición.
 ART. SEGUNDO.- El presente Decreto comienza a surtir sus efectos desde la fecha de su promulgación y deroga todas las demás Leyes y disposiciones que se opongan a su cumplimiento.
