@@ -6,6 +6,7 @@ DECRETO NUMERO 8345
 El H. Congreso del Estado Libre y Soberano de Nayarit, representado por su XXVI Legislatura
 D E C R E T A
 LEY MUNICIPAL PARA EL ESTADO DE NAYARIT
+TÍTULO SEGUNDO
 TÍTULO PRIMERO
 CAPÍTULO ÚNICO
 Disposiciones generales al régimen municipal
