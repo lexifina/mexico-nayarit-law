@@ -18,3 +18,4 @@ MANUEL IBARRA LOPEZ
 Y en cumplimiento de lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic, su Capital, a los veinte días del mes de abril de mil novecientos noventa y cuatro.
 El Secretario General de Gobierno.
 C.P. Antonio Echevarría Domínguez.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
