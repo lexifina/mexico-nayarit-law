@@ -1,0 +1,1 @@
+ARTICULO PRIMERO.- Por razones de utilidad pública se crea el organismo público descentralizado con personalidad jurídica y patrimonio propios y con domicilio en la ciudad de Tepic, bajo la denominación de COMISION DE FINANCIAMIENTO Y COMERCIALIZACION DE PRODUCTOS AGRICOLAS, GANADEROS, PESQUEROS Y ARTESANALES EN EL ESTADO DE NAYARIT.

@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- La Comisión de Financiamiento y Comercialización de Productos Agrícolas, Ganaderos, Pesqueros y Artesanales en el Estado de Nayarit, estará presidida por un Vocal Ejecutivo que designará el Gobernador del Estado.

@@ -1,0 +1,1 @@
+ARTICULO QUINTO.- El Vocal Ejecutivo con la aprobación del Gobernador del Estado establecerá las bases de organización y funcionamiento de la Comisión de Financiamiento y Comercialización de Productos Agrícolas, Ganaderos, Pesqueros y Artesanales en el Estado de Nayarit, con apego a las disposiciones de esta Ley.
