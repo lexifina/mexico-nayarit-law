@@ -11,3 +11,4 @@ JOSE BAYARDO VIDAL
 Y en cumplimiento de lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic, su Capital, a los veintiocho días del mes de noviembre de mil novecientos ochenta y nueve.
 El Secretario Gral. de Gobierno
 Lic. Pedro Ponce de León Montes.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
