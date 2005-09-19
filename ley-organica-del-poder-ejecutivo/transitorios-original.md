@@ -17,3 +17,4 @@ MARGARITA BASTO PAREDES
 Y en cumplimiento de lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic, su Capital a los diecinueve días del mes de Diciembre del año dos mil.
 El Secretario General de Gobierno
 Lic. Fernando González Díaz.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
