@@ -6,3 +6,4 @@ Y en cumplimiento de lo dispuesto en la Fracción II del Artículo 69 de la Cons
 Coronel Rogelio Flores Curiel.- Rúbrica.
 El Secretario General de Gobierno,
 Dr. J. Jesús Osuna Gómez.- Rúbrica.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
