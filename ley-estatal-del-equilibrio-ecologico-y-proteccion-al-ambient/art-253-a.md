@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 253 A.- En caso de que durante el procedimiento de evaluación de la manifestación de impacto ambiental, informe preventivo o estudio de riesgo, o durante el acto de inspección y vigilancia o procedimiento administrativo, se detecte que existe falsedad u omisión en la información proporcionada, el promovente y prestador de servicios ambientales se considerarán corresponsales y a ambos se les impondrá una multa de veinte a mil días de salario mínimo vigente en el Estado.

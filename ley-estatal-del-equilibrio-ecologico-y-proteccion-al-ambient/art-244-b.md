@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 244 B.- Cuando exista riesgo de desequilibrio ecológico, o de daño o deterioro a los recursos naturales, casos de contaminación con repercusiones para los ecosistemas, sus componentes o para la salud pública, el personal autorizado por la Secretaria durante la visita de Inspección, podrá ordenar alguna o algunas de las medidas de seguridad establecidas en el articulo 251 de la presente Ley.

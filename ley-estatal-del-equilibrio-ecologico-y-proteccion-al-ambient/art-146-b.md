@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 146 B.- Cuando los vehículos no aprueben la verificación, el personal del Centro entregará al propietario o conductor la constancia de rechazo con las anomalías detectadas, contando éste con un plazo de quince días hábiles para corregir los desperfectos señalados y someter al vehículo a una segunda verificación en el mismo centro, sin costo adicional.
+Si nuevamente resulta necesaria una verificación por tercera vez, ésta tendrá un costo adicional a la tarifa establecida, de tal manera que los intentos de verificación pares, dentro del término de quince días que señala el párrafo anterior, serán gratuitos, mientras que los intentos nones se realizarán previo pago del importe de la tarifa por el servicio de verificación.

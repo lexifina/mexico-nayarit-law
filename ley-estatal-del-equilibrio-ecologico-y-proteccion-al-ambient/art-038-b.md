@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 38 B.- La manifestación de Impacto Ambiental, deberá contener por lo menos, una descripción de los posibles efectos en el o los ecosistemas que pudieran ser afectados por la obra o actividad de que se trate, considerando el conjunto de los elementos que conforman dichos ecosistemas, así como las medidas preventivas, de mitigación y las demás necesarias para evitar y reducir al mínimo los efectos negativos sobre el ambiente.
+Cuando se trate de actividades consideradas riesgosas en los términos de la presente Ley, la manifestación deberá de incluir el estudio de riesgo correspondiente.

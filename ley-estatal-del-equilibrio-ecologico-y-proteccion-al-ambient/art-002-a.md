@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 2 A.- Son de aplicación supletoria de esta Ley, la Ley de protección Civil, el Código Civil, la Ley de Justicia y Procedimientos Administrativos, todos del Estado de Nayarit; y la Ley General del Equilibrio Ecológico y la Protección al Ambiente, Ley General de Desarrollo Forestal Sustentable, Ley General para la Prevención y Gestión Integral de los Residuos y Ley General de Vida Silvestre.

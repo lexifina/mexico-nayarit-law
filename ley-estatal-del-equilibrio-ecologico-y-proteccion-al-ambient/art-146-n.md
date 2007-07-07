@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 146 N.- La Secretaría realizará la supervisión de todos los centros de Verificación Vehicular a través de su personal acreditado mediante visitas de inspección, con el fin de comprobar que su operación y funcionamiento se realice en estricto cumplimiento a lo dispuesto en la Ley, las Normas Oficiales Mexicanas, Normas Técnicas Ecológicas Estatales, circulares, Manuales de Procedimientos y demás ordenamientos aplicables.

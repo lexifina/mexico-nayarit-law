@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 137 A.- No deberán emitirse contaminantes a la atmósfera que ocasionen o puedan ocasionar desequilibrios ecológicos o daños al ambiente. En todas las emisiones a la atmósfera se observarán las prevenciones de esta Ley y las disposiciones reglamentarias que de ella emanen; así como las normas oficiales expedidas por el ejecutivo federal y la normatividad reglamentaria que al efecto expida el Gobierno del Estado.

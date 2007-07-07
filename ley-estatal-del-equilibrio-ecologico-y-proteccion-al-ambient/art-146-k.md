@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 146 K.- El certificado que corresponde a la Secretaría será remitido mediante informe mensual o antes si el Centro requiere reabastecerse de certificados para seguir operando; a éste deberá adjuntarse el certificado de la verificación anterior o el comprobante del pago de la multa y copia de la tarjeta de circulación del vehículo.
+El certificado que corresponde al permisionario, se conservará en el Centro para resguardo y aclaraciones relacionadas con el servicio de verificación; así como para la emisión de copias del mismo en caso de extravío del certificado por parte del usuario, haciendo constar que es copia fiel de los certificados que obran en sus archivos.

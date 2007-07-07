@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 49 A.- En el caso de que un plan o programa parcial de desarrollo urbano o de ordenamiento ecológico incluyan obras o actividades de las señaladas en el artículo 39 de esta Ley, las autoridades competentes del estado o municipios, podrán presentar dichos planes o programas a la Secretaría, con el propósito de que ésta emita la autorización que en materia de impacto ambiental corresponda, respecto del conjunto de obras o actividades que se prevean realizar en un área determinada, en los términos de la presente Ley.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 113 B.- Corresponde a la Secretaría en coordinación con la federación, aplicar las disposiciones que sobre preservación y aprovechamiento sustentable de especies de fauna silvestre establezcan esta y otras leyes, y autorizar su aprovechamiento en actividades económicas, sin perjuicio de las facultades que correspondan a otras dependencias conforme a otras leyes.

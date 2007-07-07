@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 146 P.- La Secretaría al realizar las visitas de inspección previa orden fundada y motivada, levantará un acta circunstanciada por duplicado de lo observado y practicado en la diligencia. Esta se levantará en presencia de dos testigos propuestos por la persona que atienda la diligencia, en caso de negarse a hacerlo, lo hará el inspector quien deberá firmarla.
