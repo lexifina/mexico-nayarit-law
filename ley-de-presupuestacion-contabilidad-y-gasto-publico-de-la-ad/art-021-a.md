@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 15 DE DICIEMBRE DE 2007)
+ARTICULO 21 A.- Los pagos que deban efectuarse con cargo al presupuesto de egresos en cumplimiento de las obligaciones derivadas de los contratos administrativos de largo plazo o de los fideicomisos de financiamiento se considerarán preferentes, debiendo contar con las respectivas autorizaciones que obligan las normas que los regulan.
+Los ejecutores de gasto público considerados en esta ley deberán incluir en informes trimestrales un reporte sobre el monto total erogado durante el periodo correspondiente a los contratos administrativos de largo plazo y fideicomisos de financiamiento, así como incluir las previsiones correspondientes en sus proyectos de presupuesto para el siguiente ejercicio fiscal.

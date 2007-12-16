@@ -1,4 +1,4 @@
-P.O. 17 DE AGOSTO DE 2002.
+P.O. 17 DE AGOSTO DE 2002
 (REFORMADO, P.O. 28 DE SEPTIEMBRE DE 2002)
 Primero.- El presente decreto entrará en vigor a los cuarenta y cinco días siguientes al de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit, con excepción del Título Cuarto del ARTICULO PRIMERO de este decreto, el cual entrará en vigor el tres de marzo del año 2003.
 El artículo 71 a que se refiere el ARTICULO PRIMERO del presente decreto, iniciará su vigencia el tres de marzo del año 2003, a fin de que tanto el Poder Ejecutivo del estado como los Ayuntamientos expidan, antes de esta fecha, sus correspondientes reglamentos para el cobro y aplicación de gastos de ejecución, de conformidad con lo establecido en dicho artículo.
@@ -9,7 +9,7 @@ Tercero.- Los magistrados del Tribunal de Justicia Administrativa del Estado de 
 En todo caso, la primera sesión de la sala del Tribunal de Justicia Administrativa del estado de Nayarit se llevará a cabo el día tres de marzo del año 2003, en la cual se habrán de ratificar sus acuerdos previos.
 El Reglamento Interior y el calendario laboral del Tribunal de Justicia Administrativa del Estado de Nayarit, una vez aprobados por los magistrados, deberán publicarse debiendo iniciar su vigencia el día tres de marzo del año 2003.
 (REFORMADO, P.O. 28 DE SEPTIEMBRE DE 2002)
-Cuarto.- El Gobernador del Estado y el Congreso del Estado preverán lo conducente a efecto de incluir dentro del presupuesto de egresos del año 2003 las partidas suficientes que garanticen el adecuado funcionamiento del Tribunal de Justicia Administrativa del Estado de Nayarit a partir de la fecha en que este mismo decreto se señalan
+Cuarto.- El Gobernador del Estado y el Congreso del Estado preverán lo conducente a efecto de incluir dentro del presupuesto de egresos del año 2003 las partidas suficientes que garanticen el adecuado funcionamiento del Tribunal de Justicia Administrativa del Estado de Nayarit a partir de la fecha en que este mismo decreto se señala.
 Quinto.- Los procedimientos y recursos administrativos que se encuentren en trámite al entrar en vigor esta resolución, se substanciarán de conformidad a las disposiciones legales anteriores al mismo.
 Sexto.- El Poder Ejecutivo y los Ayuntamientos del estado deberán prever que sus respectivos proyectos de leyes de ingresos del año 2003 y siguientes; se ajusten a lo establecido en el en el artículo 71 del ARTÍCULO PRIMERO de este decreto, en tanto no se modifique su contenido.
 Asimismo, realizarán las acciones necesarias para que en sus respectivos presupuestos de egresos se considere, a partir del año 2003, una partida específica para el pago de la responsabilidad patrimonial por los daños y perjuicios en que pudieren incurrir sus servidores públicos.
