@@ -15,3 +15,4 @@ Y en cumplimiento de lo dispuesto en la Fracción II del Artículo 69 de la Cons
 Emilio M. González.- Rúbrica.
 Lic. Rafael Pérez Cárdenas
 Subsecretario General de Gobierno en funciones de Secretario General de Gobierno P.M.D.L.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
