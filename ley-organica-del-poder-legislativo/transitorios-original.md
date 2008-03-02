@@ -7,3 +7,4 @@ Artículo Quinto.- La Comisión de Gobierno Legislativo acordará lo conducente,
 D A D O en la Sala de Sesiones "Lic. Benito Juárez García" recinto oficial de este Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los veintiséis días del mes de abril del año 2007.
 Dip. María Eugenia García Espino, Presidenta.- Rúbrica.- Dip. Juan Ignacio Ornelas Salas, Secretario.- Rúbrica.- Dip. Rafael Vega Herrera, Secretario.- Rúbrica.
 Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los cuatro días del mes de mayo del año dos mil siete.- Lic. Ney González Sánchez.- Rúbrica.- La Secretaría General de Gobierno.- Profa. Cora Cecilia Pinedo Alonso.- Rúbrica.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
