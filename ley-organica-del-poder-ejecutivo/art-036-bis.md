@@ -2,11 +2,13 @@
 Artículo 36 Bis. A la Secretaría de Educación Media Superior, Superior, e Investigación científica y tecnológica le corresponden las siguientes atribuciones:
 l. Proponer al Ejecutivo del Estado, las políticas y programas en materia de educación media superior, superior, de investigación científica y tecnológica, vinculadas al plan estatal de desarrollo y al mercado laboral de la región; así como promover, apoyar, ejecutar y supervisar las actividades relativas a dichas materias, por conducto de la propia Secretaría o de los órganos desconcentrados y organismos descentralizados que para tal efecto constituya el Ejecutivo Estatal;
 II. Dar cumplimiento a lo que establece en la Constitución General de la República, la propia del Estado, y las leyes que de ellas emanan, en los temas propios de esta Secretaría;
-III. Promover, otorgar, planear, organizar, desarrollar, vigilar y evaluar los servicios de educación media superior, superior e investigación científica y tecnológica, de la Administración Pública Centralizada o que dependan de sus organismos descentralizados, con apego a la legislación federal o a la estatal vigentes;
+(REFORMADA, P.O. 25 DE MARZO DE 2008)
+III. Promover, otorgar, planear, organizar, desarrollar, vigilar y evaluar los servicios de educación media superior, superior e investigación científica y tecnológica, con excepción de la educación normal a que se refiere el artículo 36 fracción VI;
 IV. En el marco de la planeación democrática, diseñar, operar y evaluar el programa estatal de desarrollo en educación media superior, superior e investigación científica y tecnológica, en los términos de la legislación vigente;
 V. Constituir los consejos estatales para la planeación de las instituciones públicas y privadas que imparten educación media superior, superior y de investigación científica y tecnológica;
 VI. Formular la política estatal en materia de atención a la juventud y organizar, dirigir, supervisar, administrar y coordinar los servicios que se dirijan a los jóvenes en el Estado de Nayarit;
-VII. Dirigir, operar y supervisar los servicios de educación normal, media superior y superior, técnica y niveles especiales, conforme a la legislación federal y estatal vigente;
+(REFORMADA, P.O. 25 DE MARZO DE 2008)
+VII. Dirigir, operar y supervisar los servicios de educación media superior, superior y técnica, así como a las instituciones de educación privada que impartan programas de formación de maestros de educación básica, conforme a la legislación federal y estatal vigente;
 VIII. Formular y proponer los contenidos regionales y estatales que hayan de incluirse en los planes y programas de estudio para la normal, la educación media superior, superior, e investigación científica y tecnológica y promover la creación de posgrados que fomenten la investigación regional, nacional y con visión universal;
 IX. Formular y proponer planes y programas de estudio regionales, que permitan difundir un mejor conocimiento de la historia, la geografía, las costumbres, las tradiciones, cultura indígena y demás aspectos propios de la entidad y sus municipios respectivos;
 X. Fijar los criterios educativos y culturales en la producción radiofónica y televisiva de la Administración Pública del Estado, en el ámbito de su competencia;
@@ -30,8 +32,10 @@ XXVII. Otorgar becas de conformidad con las disposiciones legales aplicables;
 XXVIII. Expedir certificados y otorgar constancias, diplomas y grados académicos a las personas que hayan concluido estudios, de conformidad con los planes y programas de estudio correspondientes, así como llevar el registro de los mismos;
 XXIX. Revalidar los estudios, diplomas, grados o títulos equivalentes a la enseñanza que se imparta en el Estado;
 XXX. Autorizar, con el acuerdo del Titular del Ejecutivo, los nombramientos de los servidores públicos adscritos presupuestalmente a la Secretaría, así como los permisos que deban otorgarse en términos de la legislación vigente;
-XXXI. Desarrollar programas de actualización del personal directivo y magisterial;
-XXXII. Mantener al corriente el escalafón del magisterio y crear un sistema de estímulos y recompensas a la labor educativa, de conformidad con la legislación vigente;
+(REFORMADA, P.O. 25 DE MARZO DE 2008)
+XXXI. Desarrollar programas de actualización del personal directivo y magisterial, dependiente de esta Secretaría;
+(REFORMADA, P.O. 25 DE MARZO DE 2008)
+XXXII. Mantener al corriente el escalafón del magisterio dependiente de esta Secretaría y crear un sistema de estímulos y recompensas a la labor educativa, de conformidad con la legislación vigente;
 XXXIII. Constituir el Sistema Estatal de Actualización, Capacitación y Superación Profesional para Maestros;
 XXXIV. Otorgar reconocimientos, distinciones, estímulos y recompensas a los docentes e investigadores que destaquen en el ejercicio de su profesión y, en general, realizar actividades que proporcionen mayor aprecio social a la labor desempeñada por el magisterio;
 XXXV. En términos de lo previsto por la Ley del Instituto del Deporte y la Juventud, impulsar, organizar y fomentar el deporte, dentro de sus diferentes niveles educativos, haciéndolos participar en eventos municipales, estatales, nacionales y en el extranjero;
