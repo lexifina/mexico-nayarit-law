@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE DICIEMBRE DE 2008)
+ARTICULO 60 D.- Para que un inmueble pueda prestar servicios educativos ya sea de carácter público o privado, además de contar con autorización o reconocimiento de validez oficial de estudios, deberán obtenerse las licencias, avisos de funcionamiento y, en su caso, el certificado para garantizar el cumplimiento de los requisitos de construcción, estructura, condiciones especificas o equipamiento que sean obligatorios para cada tipo de obra, en los términos y las condiciones que establezca la norma aplicable.
