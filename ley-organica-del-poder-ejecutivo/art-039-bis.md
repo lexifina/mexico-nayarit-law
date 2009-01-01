@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 17 DE SEPTIEMBRE DE 2005)
-Artículo 39 Bis.- A la Secretaría de Turismo le corresponden las siguientes atribuciones:
+Artículo 39 Bis. A la Secretaría de Turismo le corresponden las siguientes atribuciones:
 I. Elaborar, ejecutar y evaluar los planes sectoriales y programas de la rama turística estatal y coordinar las acciones que al efecto sean necesarias con la Federación, los municipios del estado, otras entidades federativas y sus gobiernos municipales;
 II. Promover, fomentar, dirigir, coordinar, controlar y evaluar la ejecución de las políticas, programas y actividades de promoción y al desarrollo turístico del estado;
 III. Proponer al Gobernador del Estado las políticas, programas y proyectos relativos a la promoción y fomento de las actividades turísticas y ejecutarlos en el ámbito de su competencia;
