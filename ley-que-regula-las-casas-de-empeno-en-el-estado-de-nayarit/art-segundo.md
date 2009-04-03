@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- El titular del Poder Ejecutivo del Estado de conformidad a sus atribuciones, deberá expedir el Reglamento de esta Ley en un plazo que no exceda de sesenta días naturales a partir de su publicación.
