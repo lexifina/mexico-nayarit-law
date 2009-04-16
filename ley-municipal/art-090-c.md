@@ -1,0 +1,3 @@
+(ADICIONADO, P.O.15 DE ABRIL DE 2009)
+ARTICULO 90 C.- Sólo habrá lugar a la celebración de elecciones extraordinarias en los términos de la Ley Electoral del Estado, cuando la falta absoluta de alguno o algunos de los miembros del Ayuntamiento ocurra dentro de los primeros dieciocho meses del periodo constitucional, y la vacante no pueda ser cubierta por el suplente respectivo.
+Tratándose de falta absoluta del Presidente Municipal y del Síndico y de sus respectivos suplentes, mientras se verifica la elección, el Ayuntamiento por mayoría absoluta designará de entre sus integrantes a quien fungirá como Presidente o Síndico Interino.
