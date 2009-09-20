@@ -1,0 +1,10 @@
+Transitorios
+Primero.- La presente ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
+Segundo.- El Reglamento de esta Ley deberá ser expedido en un plazo no mayor de 180 días naturales contados a partir de la entrada en vigor de la presente.
+Tercero.- El Instituto Nayarita de la Juventud en un plazo de 180 días contados a partir de la entrada en vigor de la presente Ley, deberá elaborar el Programa.
+Cuarto.- Se abroga el decreto número 8626, publicado en el Periódico Oficial del Estado el 22 de diciembre del año 2004.
+Quinto.- El Instituto que se crea con la presente ley seguirá ejerciendo los recursos financieros y materiales asignados al Instituto Nayarita de la Juventud constituido mediante el decreto que se abroga; asimismo quedan a salvo los derechos laborales adquiridos por los servidores públicos de dicho organismo descentralizado.
+Sexto.- Los nombramientos para integrar la Junta de Gobierno del Instituto Nayarita de la Juventud que al amparo del Decreto que se abroga realizaron la Secretaría de Planeación y Desarrollo, la Comisión de Atención a la Juventud del H. Congreso del Estado, el Instituto del Deporte del Estado y las Universidades o Instituciones públicas de nivel superior, quedarán sin efectos a partir de la entrada en vigor de la presente ley.
+DADO en la Sala de Sesiones "Lic. Benito Juárez" recinto oficial del H. Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los diez días del mes de septiembre del año dos mil nueve.
+Dip. Manuel Narváez Robles, Presidente.- Rúbrica.- Dip. Jesús Castañeda Tejeda, Secretario.- Rúbrica.- Dip. Luis Alberto Salinas Cruz, Secretario.- Rúbrica.
+Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los dieciocho días del mes de septiembre del año dos mil nueve.- Lic. Ney González Sánchez.- Rúbrica.- El Secretario General de Gobierno, Dr. Roberto Mejía Pérez.- Rúbrica.
