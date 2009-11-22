@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 5 DE MAYO DE 2007)
-ARTICULO 464 C.- Conforme a lo establecido en el artículo anterior, podrán acordarse, entre otras, las siguientes medidas cautelares:
+ARTICULO 464 "C".- Conforme a lo establecido en el artículo anterior, podrán acordarse, entre otras, las siguientes medidas cautelares:
 I.- El embargo precautorio para asegurar la ejecución de la sentencia;
 II.- La intervención o la administración judicial de bienes;
 III.- El depósito de cosa mueble;
