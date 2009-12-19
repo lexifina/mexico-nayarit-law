@@ -30,7 +30,3 @@ XXVI.- Aplicar medidas preventivas o de seguridad e imponer sanciones administra
 XXVII.- Conocer y resolver, en el ámbito de su competencia, los recursos y demás medios administrativos de impugnación interpuestos en contra de los actos emanados de esta Secretaría o que por mandato legal le corresponda tramitar, en los términos de los ordenamientos aplicables;
 XXVIII.- Intervenir en los procedimientos judiciales y administrativos en que la Secretaría sea parte o tenga interés jurídico, de conformidad con las facultades otorgadas por los ordenamientos aplicables y los convenios o anexos celebrados entre la Administración Pública Estatal con la Federación y los Municipios; y
 XXIX.- Las demás que le atribuyan las leyes, reglamentos, convenios, otras disposiciones legales y las que le confiera el Gobernador del Estado.
-TÍTULO TERCERO
-De la Administración Pública Paraestatal
-CAPÍTULO PRIMERO (SIC)
-De las Entidades

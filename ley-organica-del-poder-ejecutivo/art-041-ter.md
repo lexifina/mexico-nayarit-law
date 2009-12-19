@@ -1,0 +1,21 @@
+(ADICIONADO, P.O. 18 DE DICIEMBRE DE 2009)
+Artículo 41 Ter. A la Secretaría de Desarrollo Social corresponde el despacho de los siguientes asuntos:
+I. Formular, conducir y evaluar la política general de desarrollo social para el combate efectivo a la pobreza; en particular, la de asentamientos humanos, desarrollo urbano y vivienda;
+II. Proyectar y coordinar, con la participación que corresponda a los gobiernos federal y municipales, la planeación regional;
+III. Coordinar las acciones que incidan en el combate a la pobreza fomentando un mejor nivel de vida de la gente, propiciando la celebración de convenios con los gobiernos federal, municipales y los sectores social y privado;
+IV. Elaborar los programas regionales y especiales que le señale el Ejecutivo, tomando en cuenta las propuestas que para el efecto realicen las dependencias y entidades de la Administración Pública y los gobiernos municipales, así como autorizar las acciones e inversiones autorizadas en el Presupuesto de Egresos en coordinación con la Secretaría de Planeación, Programación y Presupuesto;
+V. Coordinar, concretar y ejecutar programas especiales para la atención de los sectores sociales más desprotegidos, en especial de los pobladores de las zonas indígenas, de las áreas rurales, así como de los colonos de las áreas urbanas, para elevar el nivel de vida de la población, con la intervención de las dependencias y entidades de la Administración Pública estatal correspondientes y de los gobiernos municipales y, con la participación de los sectores social y privado;
+VI. Elaborar el Programa Estatal de Desarrollo Social y someterlo a consideración del Ejecutivo para su aprobación;
+VII. Coordinar las acciones en materia de atención a migrantes, en coordinación con los gobiernos federal y municipales y fomentando la participación de las organizaciones sociales de la materia;
+VIII. Proyectar la distribución de la población y la ordenación territorial de los centros de población, conjuntamente con las dependencias y entidades de la Administración Pública que corresponda, así como coordinar las acciones que el Ejecutivo convenga con los gobiernos federal y municipales para la realización de acciones coincidentes en esta materia, con la participación de los sectores social y privado;
+IX. Elaborar, apoyar y ejecutar programas para satisfacer las necesidades de suelo urbano y el establecimiento de provisiones y reservas territoriales para el adecuado desarrollo de los centros de población, en coordinación con las dependencias y entidades de la Administración Pública Estatal correspondientes y los gobiernos federal y municipales, y con la participación de los sectores social y privados;
+X. Promover y concertar programas de vivienda y de desarrollo urbano, y apoyar su ejecución, con la participación de los gobiernos estatales y municipales, y los sectores social y privado;
+XI. Fomentar la organización de sociedades cooperativas de vivienda y materiales de construcción, en coordinación con las Secretarías del Trabajo y Desarrollo Económico respectivamente;
+XII. Promover y apoyar mecanismos de financiamiento para el desarrollo regional y urbano, así como para la vivienda, con la participación de las dependencias y entidades de la Administración Pública Estatal correspondientes, de los gobiernos federal y municipales, de las instituciones de crédito y de los diversos grupos sociales;
+XIII. Promover la construcción de obras de infraestructura y equipamiento para el desarrollo regional y urbano, y el bienestar social, en coordinación con los gobiernos estatales y municipales y con la participación de los sectores social y privado;
+XIV. Asegurar la adecuada distribución, comercialización y abastecimiento de los productos de consumo básico de la población de escasos recursos, con la intervención que corresponde a las Secretarías de Desarrollo Económico y Desarrollo Rural; bajo principios que eviten el uso o aprovechamiento indebido y ajenos a los objetivos institucionales;
+XV. Las demás que le atribuyan las leyes, reglamentos, convenios y las que le confiera el Gobernador del Estado.
+TÍTULO TERCERO
+De la Administración Pública Paraestatal
+CAPÍTULO PRIMERO (SIC)
+De las Entidades
