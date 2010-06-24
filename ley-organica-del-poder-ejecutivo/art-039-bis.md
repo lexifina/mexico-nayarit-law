@@ -12,7 +12,8 @@ IX. Fomentar el turismo en zonas arqueológicas, monumentos artísticos de inter
 X. Promover la seguridad del turista en acciones coordinadas con las instancias y dependencias estatales, federales y municipales;
 XI. Estimular la participación de los sectores social y privado con capitales nacionales y extranjeros para el desarrollo y habilitación de la infraestructura turística;
 XII. Fomentar el incremento de la productividad en el trabajo dentro del sector turístico;
-XIII. Promover el desarrollo de la capacitación y el adiestramiento para el trabajo en el sector turístico en coordinación con las Secretarías de Educación pública y Desarrollo Económico;
+(REFORMADA, P.O. 23 DE JUNIO DE 2010)
+XIII. Promover el desarrollo de la capacitación y el adiestramiento para el trabajo en el sector turístico en coordinación con las Secretarías del Trabajo y de Educación Media Superior, Superior e Investigación Científica y Tecnológica;
 XIV. Formular, evaluar y promover los programas de promoción y divulgación turística del estado y sus municipios;
 XV. Emitir opinión a las dependencias correspondientes en la planificación de los asentamientos humanos en las zonas turísticas del estado;
 XVI. Integrar y mantener actualizado el inventario de los recursos turísticos del estado y el padrón estatal de prestadores de servicios turísticos;
