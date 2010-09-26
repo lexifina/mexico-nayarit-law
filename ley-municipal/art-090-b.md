@@ -1,4 +1,4 @@
-(ADICIONADO, P.O.15 DE ABRIL DE 2009)
+(ADICIONADO, P.O. 15 DE ABRIL DE 2009)
 ARTICULO 90 B.- Las inasistencias de los miembros del Ayuntamiento a las sesiones o al cumplimiento de sus funciones serán justificadas en los siguientes supuestos:
 I.- Estar enfermo o impedido físicamente por un periodo no mayor a sesenta días naturales, acreditándose dicha circunstancia mediante certificado médico expedido por una institución autorizada o profesionista debidamente registrado;
 Si las causas anteriores exceden el tiempo señalado, el Ayuntamiento deberá llamar al suplente o al que siga en la lista para que asuma funciones por el tiempo necesario.
