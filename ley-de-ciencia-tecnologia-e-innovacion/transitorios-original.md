@@ -1,0 +1,9 @@
+Transitorios
+Primero.- La presente ley entrará en vigor a los treinta días siguientes a su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
+Segundo.- Se abroga la Ley para el Fomento de la Ciencia y la Tecnología en el Estado de Nayarit, contenida en el Decreto 8386 publicado el 24 de Noviembre de 2001 en el Periódico Oficial, Órgano del Gobierno del Estado.
+Tercero.- El Reglamento de esta ley deberá expedirse en un plazo no mayor de noventa días, contados a partir de la entrada en vigor de la misma.
+Cuarto.- El Consejo General de Ciencia, Tecnología e Innovación del Estado de Nayarit deberá instalarse en un plazo no mayor a treinta días, contados a partir de la entrada en vigor de la presente ley.
+Quinto.- El Consejo de Ciencia y Tecnología del Estado de Nayarit (COCYTEN) a que se hace referencia en el artículo 27 de la presente ley, seguirá ejerciendo los recursos financieros y materiales asignados al organismo de igual denominación, constituido mediante el Decreto que se abroga; asimismo quedan a salvo los derechos laborales adquiridos por los servidores públicos de dicho organismo descentralizado.
+D A D O en la Sala de Sesiones "Lic. Benito Juárez García" recinto oficial del H. Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los trece días del mes de octubre del año dos mil diez.
+Dip. Antonio Carrillo Ramos, Presidente.- Rúbrica.- Dip. Gloria Noemí Ramírez Bucio, Secretaria.- Rúbrica.- Dip. Jaime Arturo Briseño Quintana, Secretario.- Rúbrica.
+Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los veintiún días del mes de octubre del año dos mil diez.- Lic. Ney González Sánchez.- Rúbrica.- El Secretario General de Gobierno, Dr. Roberto Mejía Pérez.- Rúbrica.
