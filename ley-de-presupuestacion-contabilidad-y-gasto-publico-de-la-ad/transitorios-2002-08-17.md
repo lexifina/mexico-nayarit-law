@@ -1,4 +1,4 @@
-P.O. 17 DE AGOSTO DE 2002
+P.O. 17 DE AGOSTO DE 2002.
 (REFORMADO, P.O. 28 DE SEPTIEMBRE DE 2002)
 Primero.- El presente decreto entrará en vigor a los cuarenta y cinco días siguientes al de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit, con excepción del Título Cuarto del ARTICULO PRIMERO de este decreto, el cual entrará en vigor el tres de marzo del año 2003.
 El artículo 71 a que se refiere el ARTICULO PRIMERO del presente decreto, iniciará su vigencia el tres de marzo del año 2003, a fin de que tanto el Poder Ejecutivo del estado como los Ayuntamientos expidan, antes de esta fecha, sus correspondientes reglamentos para el cobro y aplicación de gastos de ejecución, de conformidad con lo establecido en dicho artículo.
