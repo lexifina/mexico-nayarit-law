@@ -1,6 +1,7 @@
 (ADICIONADO, P.O. 20 DE DICIEMBRE DE 2008)
 ARTICULO 60 B.- La aplicación y vigilancia del cumplimiento de las disposiciones en materia de infraestructura física educativa corresponde en el ámbito de sus respectivas competencias constitucionales y legales, a las siguientes autoridades:
-I.- El titular del Ejecutivo Estatal;
+(REFORMADA, P.O. 9 DE MARZO DE 2011)
+I.- El titular del Poder Ejecutivo Estatal;
 II.- El Instituto Nayarita para la Infraestructura Física Educativa;
 III.- La Secretaría de Educación Básica;
 IV.- La Secretaria de Educación Media Superior, Superior, Investigación Científica y Tecnológica;
