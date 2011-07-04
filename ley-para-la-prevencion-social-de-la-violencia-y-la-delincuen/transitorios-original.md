@@ -1,0 +1,7 @@
+Transitorios:
+Artículo Primero.- La presente ley entrará en vigor a los treinta días siguientes al de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+Artículo Segundo.- El Reglamento de la presente ley deberá expedirse en un término no mayor a noventa días naturales contados a partir de su entrada en vigor.
+Artículo Tercero.- El Consejo Estatal para la Prevención Social de la Violencia y la Delincuencia deberá quedar instalado en un término no mayor a sesenta días naturales contados a partir de la entrada en vigor de la presente ley, y deberá expedir su reglamento interno en un término no mayor a noventa días naturales contados a partir de su instalación.
+D A D O en la Sala de Sesiones "Lic. Benito Juárez García" recinto oficial del Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los treinta días del mes de mayo del año dos mil once.
+Dip. J. Dolores Salvador Galindo Flores, Presidente.- Rúbrica.- Dip. Roberto Contreras Cantabrana, Secretario.- Rúbrica.- Dip. Juan José Castellanos Franco, Secretario.- Rúbrica.
+Y en cumplimiento a lo dispuesto en Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit en Tepic su capital, a los cuatro días del mes de junio del año dos mil once.- Lic. Ney González Sánchez.- Rúbrica.- La Secretaria General de Gobierno.- Lic. Angélica Patricia Sánchez Medina.- Rúbrica.
