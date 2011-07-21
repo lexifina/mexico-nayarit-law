@@ -13,3 +13,4 @@ DÉCIMO.- Se abrogan la Ley de Seguridad Pública del Estado de Nayarit, publica
 D A D O en la Universidad Tecnológica de Nayarit, decretada Recinto Provisional del Poder Legislativo del Estado Libre y Soberano de Nayarit, a los diecinueve días del mes de mayo del año dos mil nueve.
 Dip. Rodolfo Coronado Montaño, Presidente.- Rúbrica.- Dip. Gloria Noemí Ramírez Bucio, Secretaria.- Rúbrica.- Dip. Miguel Antonio Fregozo Rivera, Secretario.- Rúbrica.
 Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los veintidós días del mes de mayo del año dos mil nueve.- Lic. Ney González Sánchez.- Rúbrica.- El Secretario General de Gobierno, Dr. Roberto Mejía Pérez.- Rúbrica.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
