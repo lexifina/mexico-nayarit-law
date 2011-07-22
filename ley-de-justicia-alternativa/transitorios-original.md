@@ -1,0 +1,7 @@
+Transitorios:
+Artículo Primero.- La presente ley entrará en vigor a los noventa días siguientes de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+Artículo Segundo.- El órgano competente del Poder Judicial del Estado de Nayarit contará con un plazo de hasta noventa días a partir de la publicación de la presente ley, en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit, para emitir el reglamento respectivo.
+Artículo Tercero.- El Consejo de la Judicatura contará con un plazo de hasta noventa días contados a partir de que entre en vigor la presente ley, para instalar y poner en funcionamiento el Centro Estatal de Justicia Alternativa.
+D A D O en la Sala de Sesiones "Lic. Benito Juárez García" recinto oficial del Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los catorce días del mes de abril del año dos mil once.
+Dip. Roberto Lomelí Madrigal, Presidente.- Rúbrica.- Dip. Juan José Castellanos Franco, Secretario.- Rúbrica.- Dip. Roberto Contreras Cantabrana, Secretario.- Rúbrica.
+Y en cumplimiento a lo dispuesto en Fracción II del Artículo 69 de Constitución Política del Estado para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit en Tepic su capital, a los veintitrés días del mes de abril del año dos mil once.- Lic. Ney González Sánchez.- Rúbrica.- La Secretaria General de Gobierno.- Lic. Angélica Patricia Sánchez Medina.- Rúbrica.
