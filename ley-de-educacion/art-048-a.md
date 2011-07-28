@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE JULIO DE 2011)
+ARTICULO 48 A.- La autoridad educativa estatal buscará los mecanismos necesarios a fin de incorporar a personal capacitado en la investigación educativa, estableciendo convenios y relaciones de colaboración en caso de ser necesarios, con organismos, dependencias, institutos educativos de nivel superior, tanto nacionales como internacionales, o asociaciones civiles, con el propósito de realizar trabajos y propuestas tendientes al mejoramiento de la calidad de la educación en la entidad.
