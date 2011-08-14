@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
 (ADICIONADO, P.O. 24 DE DICIEMBRE DE 2008)
 Artículo 41 Bis. A la Secretaría del Trabajo le corresponden las siguientes atribuciones:
 I.- Ejercer dentro del ámbito estatal y de conformidad con los ordenamientos legales vigentes en la materia, las funciones en materia de trabajo y previsión social;

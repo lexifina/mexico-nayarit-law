@@ -45,8 +45,8 @@ XXXVIII. Promover y revisar, en coordinación con las dependencias estatales, lo
 XXXIX. Expedir la reglamentación administrativa interna necesaria para proveer al cumplimiento del proceso educativo;
 XL. En el ámbito de su competencia elaborar conjuntamente con la Secretaría de Obras Públicas el plan anual de construcción de obra destinada a la educación, así como el de mantenimiento y conservación de estos inmuebles e instalaciones;
 XLI. Planear y supervisar el uso de inmuebles e instalaciones destinados a la educación;
-(REFORMADA, P.O. 23 DE JUNIO DE 2010)
-XLII. Presentar a las Secretarías de Obras Públicas, de Administración y de Planeación, Programación y Presupuesto, la relación de equipamientos, enseres y utensilios requeridos por las instituciones públicas de educación que sean de su competencia;
+(REFORMADA, P.O. 13 DE AGOSTO DE 2011)
+XLII. Presentar a las Secretarías de Obras Públicas, de Administración y Finanzas y de Planeación, Programación y Presupuesto, la relación de equipamientos, enseres y utensilios requeridos por las instituciones públicas de educación que sean de su competencia;
 XLIII. Coadyuvar en la organización, control y mantenimiento de los museos, bibliotecas, casas de cultura y zonas arqueológicas del estado;
 XLIV. Impulsar las actividades de difusión y fomento cultural y artístico de los habitantes del estado; estimular, promover y fomentar la investigación científica y tecnológica, así como la difusión del patrimonio cultural, histórico, arqueológico, artístico y monumental del estado;
 XLV. Promover la creación de institutos de investigación científica y tecnológica, laboratorios y demás centros educativos que se requieran para lograr la excelencia educativa en el Estado;
