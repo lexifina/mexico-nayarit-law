@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE DICIEMBRE DE 2011)
+ARTICULO 61 L.- Por la conexión de la toma para suministro de agua en bloque a conjuntos urbanos y lotificaciones para condominio, proporcionado por las autoridades municipales o sus descentralizadas, se pagarán los derechos, por una sola vez, de acuerdo con el caudal que se registre en forma definitiva en el proyecto aprobado de red de distribución de agua potable, conforme a las tarifas que se establezcan en las leyes de ingresos de cada municipio.

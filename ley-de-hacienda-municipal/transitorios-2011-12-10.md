@@ -1,0 +1,3 @@
+P.O. 10 DE DICIEMBRE DE 2011.
+Artículo primero.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit, derogando las disposiciones que se opongan a su contenido.
+Artículo segundo.- Para efectos de la determinación de los montos a cubrir por concepto de derechos por la prestación del servicio de agua potable, drenaje, y saneamiento de aguas residuales, las disposiciones del presente decreto sólo serán aplicables para los cobros que se efectúen a partir del ejercicio fiscal 2012, en tanto, se seguirán aplicando las disposiciones vigentes con anterioridad a su publicación.

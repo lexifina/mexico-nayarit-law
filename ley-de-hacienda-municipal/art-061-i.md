@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 10 DE DICIEMBRE DE 2011)
+ARTICULO 61 I.- Por la recepción de los caudales de aguas residuales, de uso doméstico y no doméstico para su tratamiento, los ayuntamientos o sus organismos prestadores de servicios, cobrarán los siguientes derechos:
+I. Una cantidad equivalente al 51 por ciento del monto de los derechos por el suministro de agua potable, cuando el ayuntamiento o los organismos prestadores de los servicios proporcionen dicho servicio, y
+II. Cuando los usuarios sujetos al pago de este derecho se abastezcan de agua potable mediante fuentes distintas a la red municipal, pagarán mensual o bimestralmente los derechos conforme a las tarifas que se establezcan en las leyes de ingresos de cada municipio.
+El usuario sujeto al pago de este derecho deberá presentar la declaración o recibo oficial del pago de los consumos de agua potable a conformidad del ayuntamiento u organismo prestador del servicio. En el documento que se presente deberá consignarse la cantidad de metros cúbicos consumidos y el importe pagado por éstos.
+Los derechos previstos en este artículo se pagarán en el momento en que se paguen los derechos por el suministro de agua potable dentro de los plazos que prevé esta ley.
+Las aguas residuales originadas o derivadas de predios dedicados a actividades industriales, descargadas en los sistemas municipales, deberán cumplir con las normas oficiales mexicanas y demás disposiciones aplicables y serán sujetos al pago de este derecho.
