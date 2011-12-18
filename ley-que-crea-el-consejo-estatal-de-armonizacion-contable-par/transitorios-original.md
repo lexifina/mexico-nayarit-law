@@ -1,0 +1,9 @@
+TRANSITORIOS
+Artículo primero. La presente Ley entrará en vigor a partir del día siguiente de su publicación Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+Artículo segundo. El Consejo Estatal de Armonización Contable para Nayarit deberá instalarse en un plazo no mayor a quince días naturales contados a partir de la entrada en vigor de la presente Ley.
+Artículo tercero. El Consejo Estatal de Armonización Contable para Nayarit deberá aprobar su Estatuto Interno en la sesión inmediata posterior a la sesión de instalación del mismo.
+Artículo cuarto. Para efectos de la instalación del Consejo Estatal de Armonización Contable para Nayarit, el Secretario de Administración y Finanzas en su calidad de Presidente, designará directamente por única vez, a los representantes de los municipios, en un plazo no mayor a 10 días naturales contados a partir de la entrada en vigor de la presente Ley.
+Artículo quinto. A fin de garantizar la adecuada instrumentación del proceso de armonización contable, el Presupuesto de Egresos 2012, deberá considerar la asignación de recursos específicos de conformidad a las capacidades presupuestales del Estado.
+D A D O en la Sala de Sesiones "Lic. Benito Juárez García" recinto oficial del Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los siete días del mes de diciembre del año dos mil once.
+Dip. Armando García Jiménez, Presidente.- Rúbrica.- Dip. Miguel Angel Mú Rivera, Secretario.- Rúbrica.- Dip. Miguel Ángel Arce Montiel, Secretario.- Rúbrica.
+Y en cumplimiento a lo dispuesto en la Fracción II del Articulo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit en Tepic su capital, a los dieciséis días del mes de diciembre del año dos mil once.- ROBERTO SANDOVAL CASTAÑEDA.- Rúbrica.- El Secretario General de Gobierno, Lic. José Trinidad Espinoza Vargas.- Rúbrica.
