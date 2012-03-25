@@ -6,3 +6,4 @@ ARTÍCULO CUARTO.- El Ejecutivo del Estado expedirá las disposiciones reglament
 Dado en la Sala de Sesiones "Lic. Benito Juárez" de este Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los veintiséis días del mes de abril del año dos mil cinco.
 Dip. Presidente, Obdulia Delgado Delgado.- Rúbrica.- Dip. Secretario, Yolanda del Real Ureña.- Rúbrica.- Dip. Secretario, Juan Manuel Mier Pecina.- Rúbrica.
 Y en cumplimiento a lo dispuesto de la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los veintisiete días del mes de abril del año dos mil cinco.- C.P. ANTONIO ECHEVARRÍA DOMÍNGUEZ.- Rúbrica.- El Secretario General de Gobierno, Lic. Adán Meza Barajas.- Rúbrica.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.

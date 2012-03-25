@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE MARZO DE 2012)
+ARTICULO 17 E.- La Secretaría después de analizar conjuntamente con los Ayuntamientos del Estado el ordenamiento de su territorio, propondrá al titular del Poder Ejecutivo del Estado el Programa de Ordenamiento Turístico Territorial para su aprobación, tomando en consideración los Programas de Ordenamiento General y Regional en la materia y ordenará su publicación en el Periódico Oficial.
