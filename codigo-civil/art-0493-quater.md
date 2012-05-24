@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE MAYO DE 2012)
+Artículo 493 quáter.- El Juez, a petición del tutor o del curador y considerando la opinión del Consejo Municipal de Tutelas, podrá modificar las instrucciones señaladas en el documento de la designación, siempre que las circunstancias o condiciones originalmente tomadas en cuenta por el otorgante se alteren de tal forma que amenacen con perjudicar o lesionar su integridad física, mental o su patrimonio.
