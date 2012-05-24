@@ -6,6 +6,6 @@ II.- Estar en el cumplimiento de una comisión oficial conferida por el Presiden
 III.- Cuando exista motivo o circunstancia de gravedad calificada por el Ayuntamiento, aún cuando no se pida su justificación.
 En cualquier caso harán saber por escrito al Ayuntamiento, por conducto del Secretario, las causas justificadas de su inasistencia.
 Los miembros del Ayuntamiento que no asistan a las sesiones o que incumplan sus funciones sin causa justificada dejarán de percibir la parte correspondiente a sus emolumentos.
-(ADICIONADA CON LOS ARTICULOS QUE LA INTEGRAN, P.O. 15 DE ABRIL DE 2009)
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 15 DE ABRIL DE 2009)
 SECCIÓN CUARTA
 De las reglas aplicables a la suplencia de los integrantes del Ayuntamientos (sic)
