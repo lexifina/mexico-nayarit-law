@@ -10,8 +10,8 @@ VI. No haber sido Gobernador, Secretario del Despacho o titular de alguna entida
 VII. No pertenecer al estado eclesiástico, ni ser ministro de algún culto religioso, a menos que se separe conforme a lo establecido en la Constitución Federal y la ley de la materia;
 VIII. Poseer, al día del nombramiento, título y cédula profesional de licenciatura en el área de Sociales, Humanidades o Económico Administrativas, expedidos por autoridad o institución legalmente facultada para ello.
 Dicho titular, durante el ejercicio de su encargo, no podrá formar parte de ningún partido político, ni desempeñar otro empleo, cargo o comisión, salvo los no remunerados en asociaciones científicas, docentes, artísticas o de beneficencia.
-(REFORMADA SU NUMERACION, P.O. 28 DE DICIEMBRE DE 1983)
+(REFORMADA SU NUMERACIÓN, P.O. 28 DE DICIEMBRE DE 1983)
 TITULO OCTAVO
-(REFORMADA SU DENOMINACION, P.O. 28 DE DICIEMBRE DE 1983)
+(REFORMADA SU DENOMINACIÓN, P.O. 28 DE DICIEMBRE DE 1983)
 CAPITULO UNICO
 De la Responsabilidad de los Servidores Públicos

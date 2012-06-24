@@ -1,5 +1,5 @@
 P.O. 20 DE AGOSTO DE 2008.
-DECRETO QUE REFORMA EL ARTICULO 47, FRACCION XXVI, 121 Y 121 BIS DE LA CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DE NAYARIT.
+DECRETO QUE REFORMA EL ARTÍCULO 47, FRACCIÓN XXVI, 121 Y 121 BIS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NAYARIT.
 Artículo Primero.- El presente decreto entrará en vigor al día siguiente de su publicación el (sic) Periódico Oficial, Órgano del Gobierno del Estado, salvo lo previsto en el artículo siguiente.
 Artículo Segundo.- Las formalidades, procedimientos y principios que se establecen en el presente decreto relativa a los procesos de fiscalización que realice el Órgano de Fiscalización Superior entrarán en vigor a partir del primero de enero del año 2009.
 Artículo Tercero.- En todo caso, el Congreso del Estado deberá aprobar las reformas legales que sean necesarias, mismas que deberán entrar en vigor a más tardar el primero de enero del año 2009.
