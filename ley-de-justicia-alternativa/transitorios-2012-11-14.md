@@ -1,0 +1,3 @@
+P.O. 14 DE NOVIEMBRE DE 2012.
+Artículo Primero.- El presente decreto entrará en vigor a los treinta días siguientes de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+Artículo Segundo.- Para los efectos de concientización y difusión del nuevo protocolo procedimental en materia de justicia restaurativa a que aluden las disposiciones anteriores, el Consejo de la Judicatura del Poder Judicial Local, difundirá entre todos los especialistas y servidores públicos encargados de operar y aplicar los medios alternativos de justicia en la entidad, el contenido, sentido y alcances de la presente reforma.
