@@ -1,0 +1,7 @@
+Transitorios
+Artículo Primero. La presente ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+Artículo Segundo. Dentro de los 30 días posteriores a la entrada en vigor de la presente ley, el Congreso por conducto de la Presidencia de la Mesa Directiva, requerirá a los entes públicos correspondientes, la información necesaria para abrir e integrar el expediente de evaluación de los servidores públicos que se coloquen en los supuestos normativos del presente ordenamiento.
+Artículo Tercero.- La información a la que se refiere el artículo que precede, deberá ser entregada en un plazo que no exceda a los 15 días hábiles contados a partir de la notificación.
+D A D O en la Sala de Sesiones "Lic. Benito Juárez García" recinto oficial del Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los trece días del mes de diciembre del año dos mil doce.
+Dip. Armando García Jiménez, Presidente.- Rúbrica.- Dip. Fátima del Sol Gómez Montero, Secretaria.- Rúbrica.- Dip. María Dolores Porras Domínguez, Secretaria.- Rúbrica.
+Y en cumplimiento a lo dispuesto en la Fracción II del Articulo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit en Tepic su capital, a los diecisiete días del mes de Diciembre del año dos mil doce.- ROBERTO SANDOVAL CASTAÑEDA.- Rúbrica.- El Secretario General de Gobierno, Lic. José Trinidad Espinoza Vargas.- Rúbrica.
