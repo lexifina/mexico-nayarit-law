@@ -1,0 +1,7 @@
+Artículos Transitorios
+Primero.- La presente Ley entrará en vigor a los noventa días siguientes a su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
+Segundo.- El Congreso deberá realizar en un plazo no mayor a noventa días a partir de la publicación de este ordenamiento, las modificaciones pertinentes a la Ley de Justicia Electoral para el Estado de Nayarit, respecto de lo previsto en el artículo 54 de esta Ley.
+Tercero.- La Junta Estatal Ejecutiva, dentro del término de 180 días naturales, contados a partir de la entrada en vigor de la presente Ley, expedirá el reglamento necesario para el adecuado desarrollo de los mecanismos de Participación Ciudadana.
+D A D O en la Sala de Sesiones "Lic. Benito Juárez García" recinto oficial del Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los dieciocho días del mes de diciembre del año dos mil doce.
+Dip. Armando García Jiménez, Presidente.- Rúbrica.- Dip. Fátima del Sol Gómez Montero, Secretaria.- Rúbrica.- Dip. María Dolores Porras Domínguez, Secretaria.- Rúbrica.
+Y en cumplimiento a lo dispuesto en la Fracción II del Articulo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit en Tepic su capital, a los veintidós días del mes de diciembre del año dos mil doce.- ROBERTO SANDOVAL CASTAÑEDA.- Rúbrica.- El Secretario General de Gobierno, Lic. José Trinidad Espinoza Vargas.- Rúbrica.
