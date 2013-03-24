@@ -5,4 +5,7 @@ II.- Prohibición de acercarse a lugar o persona determinada;
 III.- Prohibición de intimidar o molestar;
 IV.- Suspensión temporal al agresor del régimen de visitas y convivencia con sus descendientes;
 V.- Obligación alimentaria provisional e inmediata;
-VI.- Cualquier otra a juicio del juez tendiente a proteger los intereses del núcleo familiar.
+(REFORMADA, P.O. 23 DE MARZO DE 2013)
+VI.- Reingreso de la víctima al domicilio o lugar que habite, una vez que se garantice su seguridad; o
+(ADICIONADA, P.O. 23 DE MARZO DE 2013)
+VII.- Cualquier otra que a consideración del juez sea tendiente a proteger los intereses del núcleo familiar.
