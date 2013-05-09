@@ -5,3 +5,4 @@ Artículo Tercero.- Se derogan las disposiciones que se opongan a la presente Le
 D a d o en la Sala de Sesiones "Lic. Benito Juárez", del Honorable Congreso del Estado, en Tepic, su Capital, a los nueve días del mes de diciembre del año dos mil cuatro.
 Dip. Presidente, Manuel Narváez Robles.- Rúbrica.- Dip. Secretario, Enrique Mejía Pérez.- Rúbrica.- Dip. Secretario, Juan Manuel Mier Pecina.- Rúbrica.
 Y en cumplimiento a lo dispuesto de la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los dieciséis días del mes de diciembre del año dos mil cuatro.- C.P. ANTONIO ECHEVARRÍA DOMÍNGUEZ.- Rúbrica.- El Secretario General de Gobierno, Lic. Adán Meza Barajas.- Rúbrica.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
