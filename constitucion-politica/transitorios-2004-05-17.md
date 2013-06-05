@@ -1,5 +1,0 @@
-P.O. 17 DE MAYO DE 2004.
-ARTICULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Nayarit. Se derogan las disposiciones que se opongan al presente decreto.
-ARTÍCULO SEGUNDO.- Las reformas y adiciones a las leyes que se requieran para dar cumplimiento a las disposiciones contenidas en este Decreto, deberán estar aprobadas con el Congreso a más tardar el 30 de mayo del año 2004. Hasta antes de dicha fecha, continuarán aplicándose sólo aquellas disposiciones vigentes que no se opongan a lo establecido en este Decreto.
-El plazo para la presentación de la iniciativa de Ley de Ingresos y de Presupuesto de Egresos a que alude el artículo 38 de la Constitución Política del Estado que con este Decreto se reforma, será aplicable a partir del ejercicio fiscal 2004.
-ARTÍCULO TERCERO.- Remítase el presente decreto a los H. Ayuntamientos Constitucionales del Estado de Nayarit para los efectos del artículo 131 de la Constitución Política del Estado.

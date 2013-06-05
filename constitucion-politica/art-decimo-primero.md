@@ -1,0 +1,1 @@
+Artículo Décimo Primero. En caso de que un participante cause baja del Programa de manera anticipada, se podrá postular a un nuevo estudiante que cumpla con los requisitos quien, de ser aceptado, podrá participar en el Programa hasta por doce meses.

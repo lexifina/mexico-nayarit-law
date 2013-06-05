@@ -1,9 +1,14 @@
-CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NAYARIT
-Constitución publicada en el Periódico Oficial del Estado de Nayarit, los días 17, 21, 24 y 28 de febrero y 3, 7, 10 y 14 de marzo de 1918.
-JOSÉ S. GODÍNEZ, Gobernador Constitucional del Estado Libre y Soberano de Nayarit, a sus habitantes, sabed:
-Que el H. Congreso del Estado ha tenido a bien dirigirme, para su promulgación, la Constitución Política siguiente:
-El Primer Congreso del Estado Libre y Soberano de Nayarit, en funciones de Constituyente de acuerdo con el artículo 7º. de la Convocatoria a Elecciones de Poderes Locales decretada con fecha 22 de septiembre de 1917 por el entonces Gobernador Provisional del mismo Estado, ha tenido a bien expedir la siguiente
-CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DE NAYARIT.
-TITULO PRIMERO
-CAPITULO I
-De la Soberanía Interior del Estado y de la forma de Gobierno.
+ACUERDO GENERAL DEL PLENO DEL CONSEJO DE LA JUDICATURA FEDERAL QUE REFORMA, ADICIONA Y DEROGA DISPOSICIONES DEL SIMILAR 21/2012, RELACIONADO CON EL PROGRAMA DE PRÁCTICAS JUDICIALES EN LOS ÓRGANOS JURISDICCIONALES A CARGO DEL CONSEJO DE LA JUDICATURA FEDERAL
+Acuerdo publicado en la Tercera Sección del Diario Oficial de la Federación, el viernes 25 de septiembre de 2015.
+Al margen un sello con el Escudo Nacional, que dice: Estados Unidos Mexicanos.- Consejo de la Judicatura Federal.- Secretaría Ejecutiva del Pleno.
+ACUERDO GENERAL DEL PLENO DEL CONSEJO DE LA JUDICATURA FEDERAL QUE REFORMA, ADICIONA Y DEROGA DISPOSICIONES DEL SIMILAR 21/2012, RELACIONADO CON EL PROGRAMA DE PRÁCTICAS JUDICIALES EN LOS ÓRGANOS JURISDICCIONALES A CARGO DEL CONSEJO DE LA JUDICATURA FEDERAL.
+CONSIDERANDO
+PRIMERO. La administración, vigilancia, disciplina y carrera judicial del Poder Judicial de la Federación, con excepción de la Suprema Corte de Justicia de la Nación y el Tribunal Electoral del mismo, corresponde al Consejo de la Judicatura Federal, con fundamento en los artículos 94, segundo párrafo, de la Constitución Política de los Estados Unidos Mexicanos y 68 de la Ley Orgánica del Poder Judicial de la Federación;
+SEGUNDO. De conformidad con el artículo 100, primer párrafo constitucional, el Consejo de la Judicatura Federal es un órgano del Poder Judicial de la Federación con independencia técnica, de gestión y para emitir sus resoluciones;
+TERCERO. Es facultad del Consejo de la Judicatura Federal emitir acuerdos generales para el adecuado ejercicio de sus funciones, de conformidad con lo previsto en los artículos 100 de la Constitución Política de los Estados Unidos Mexicanos y 81, fracción II, de la Ley Orgánica del Poder Judicial de la Federación;
+CUARTO. El Consejo de la Judicatura Federal, en uso de las facultades conferidas como órgano encargado de la administración, vigilancia y disciplina del Poder Judicial de la Federación, determina el número de órganos jurisdiccionales por Circuito en la República Mexicana;
+QUINTO. El 3 de julio de dos mil trece, se publicó en el Diario Oficial de la Federación el Acuerdo General 21/2012, del Pleno del Consejo de la Judicatura Federal, relacionado con el Programa de Prácticas Judiciales en los Órganos Jurisdiccionales a cargo del Consejo de la Judicatura Federal, con el objetivo de atender el interés de los estudiantes de Derecho de consolidar la cultura jurídica y de legalidad; y
+SEXTO. Para la implementación del Programa, se creó un sistema de apoyo económico de 12 mensualidades improrrogables, que se asignan a cada uno de los participantes que reúnen los requisitos establecidos en el Acuerdo General.
+El apoyo económico mensual que reciban los estudiantes será de $2,000.00 (dos mil pesos 00/100 M.N.) conforme al esquema de pago previsto en la normativa correspondiente, con la autorización sujeta a la disponibilidad presupuestal.
+Por lo anterior, se expide el siguiente
+ACUERDO

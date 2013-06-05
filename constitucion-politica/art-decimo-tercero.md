@@ -1,0 +1,2 @@
+Artículo Décimo Tercero. En caso de inasistencias, los participantes en el Programa deberán solicitar autorización previa o presentar la justificación correspondiente, de lo cual el magistrado de Circuito o el juez de Distrito darán aviso al Instituto de la Judicatura.
+Las inasistencias podrán compensarse con horas adicionales para cubrir el número de la totalidad del Programa. Si las ausencias exceden cinco días durante el mes, se realizará el descuento correspondiente o se suspenderá el apoyo económico hasta la reincorporación.

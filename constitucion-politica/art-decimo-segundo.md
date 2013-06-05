@@ -1,0 +1,1 @@
+Artículo Décimo Segundo. Los magistrados de Circuito y los jueces de Distrito, según corresponda, podrán determinar, en los periodos vacacionales, un receso para los participantes en el Programa de quince días naturales.
