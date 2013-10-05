@@ -1,4 +1,0 @@
-Artículo Décimo. Los estudiantes beneficiados podrán cubrir las licencias que se lleguen a presentar en el órgano jurisdiccional en el que realicen las prácticas judiciales, siempre que no se afecte su desempeño académico, previa notificación al Instituto de la Judicatura de la sustitución.
-El apoyo económico al que hace referencia el artículo tercero, inciso c) de este Acuerdo, será suspendido mientras el estudiante cubra la licencia por sustitución.
-El tiempo que dure la sustitución por licencia no será computado como parte del tiempo de la práctica judicial, por lo cual, la fecha de conclusión de las prácticas judiciales será al cumplir el plazo de doce meses que comprende el Programa de Prácticas Judiciales.
-No obstante lo dispuesto en los párrafos anteriores, si el estudiante tiene un promedio menor a 80 en una escala de cero a cien o culmine sus estudios no podrá reintegrarse al Programa de Prácticas Judiciales.

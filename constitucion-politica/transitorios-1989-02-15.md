@@ -1,0 +1,4 @@
+P.O. 15 DE FEBRERO DE 1989.
+DECRETO NÚMERO 7195, QUE REFORMA ARTS. 81 AL 91.
+ARTICULO PRIMERO.- Para cumplir las condiciones y efectos a que se refiere el Artículo 131 de la Constitución Política del Estado, suscríbase la Minuta Proyecto de Decreto por los Ciudadanos Diputados integrantes de esta Honorable Legislatura y túrnese por los medios más convenientes y directos a los Honorables Ayuntamientos Constitucionales de la Entidad, para los efectos que señala expresamente en citado precepto.
+ARTICULO SEGUNDO.- Se confiere un plazo de quince días hábiles a partir de este fecha, para que los Honorables Ayuntamientos Constitucionales del Estado, emitan su resolución colegiada y, en caso de ser aprobatoria en las dos terceras partes a que alude el Artículo 131 referido, expídase en Decreto promulgatorio correspondiente, remitiéndolo al Titular del Poder Ejecutivo para los efectos legales procedentes.

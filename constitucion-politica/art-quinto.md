@@ -1,3 +1,0 @@
-Artículo Quinto. Son obligaciones de los magistrados de Circuito y de los jueces de Distrito:
-a) a d) …
-e) Derogado.

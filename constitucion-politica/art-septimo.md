@@ -1,1 +1,0 @@
-Artículo Séptimo. De las actividades asignadas a los participantes del Programa, se levantará un control de evaluación cuatrimestral, que será remitido al Instituto de la Judicatura, mediante el Formato de Reporte Múltiple y una constancia de estudios original actualizada, para que se integre al expediente del participante.
