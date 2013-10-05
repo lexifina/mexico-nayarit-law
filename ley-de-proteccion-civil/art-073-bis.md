@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE OCTUBRE DE 2013)
+Artículo 73 Bis.- En caso de riesgo inminente, sin perjuicio de la emisión de una declaratoria de emergencia, las dependencias y entidades del Estado y los municipios, ejecutarán las medidas de seguridad que les competan, a fin de proteger la vida de la población y sus bienes, la planta productiva y su entorno, para garantizar el funcionamiento de los servicios esenciales de la comunidad, informando en forma inmediata al Consejo Estatal de Protección Civil sobre las acciones emprendidas.

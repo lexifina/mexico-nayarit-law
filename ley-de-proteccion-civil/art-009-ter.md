@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 4 DE OCTUBRE DE 2013)
+Artículo 9 Ter.- Para que los particulares o dependencias públicas puedan ejercer asesoría, capacitación, evaluación, elaboración de programas internos de protección civil, continuidad de operaciones y estudios de vulnerabilidad y riesgos en materia de protección civil, deberán contar con el registro expedido por la autoridad competente de protección civil, de acuerdo con los lineamientos establecidos en el Reglamento de esta Ley.
+El registro será obligatorio y permitirá a los particulares o dependencias públicas referidas en el párrafo anterior, emitir la carta de corresponsabilidad que se requiera para la aprobación de los programas internos y especiales de protección civil.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE OCTUBRE DE 2013)
+Artículo 82 Quáter.- La autorización de permisos de uso de suelo o de utilización por parte de servidores públicos de cualquiera de los tres niveles de gobierno, que no cuenten con la aprobación correspondiente, se considerará una conducta grave, la cual se sancionará de acuerdo con la Ley de Responsabilidad de los Servidores Públicos del Estado de Nayarit, además de constituir un hecho delictivo en términos de la legislación penal.

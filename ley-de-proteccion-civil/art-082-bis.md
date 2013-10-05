@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE OCTUBRE DE 2013)
+Artículo 82 Bis.- Será sancionado como delito por la legislación penal, la construcción, edificación, realización de obras de infraestructura; y los asentamientos humanos que se lleven a cabo en una zona determinada sin elaborar un análisis de riesgos y, en su caso, definir las medidas para su reducción, tomando en consideración la normatividad aplicable y el Atlas de Riesgo Municipal y Estatal, y no cuenten con la autorización de la autoridad correspondiente.

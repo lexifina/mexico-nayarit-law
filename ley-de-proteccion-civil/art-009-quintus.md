@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 4 DE OCTUBRE DE 2013)
+Artículo 9 Quintus.- Los medios de comunicación masiva electrónicos y escritos, al formar parte del Sistema Nacional, colaborarán con las autoridades con arreglo a los convenios que se concreten sobre el particular, orientando y difundiendo oportuna y verazmente, información en materia de protección civil y de la gestión integral de riesgos.
+Los convenios de concertación contendrán las acciones de la gestión integral de riesgos y su incorporación en la elaboración de planes, programas y recomendaciones, así como en el diseño y transmisión de información pública acerca de la protección civil.

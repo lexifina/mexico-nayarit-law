@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE OCTUBRE DE 2013)
+Artículo 9 Quáter.- El emblema distintivo de la protección civil en el país deberá contener el adoptado en el ámbito internacional, conforme a la imagen institucional que se defina en el Reglamento y solamente será utilizado por el personal y las instituciones autorizadas en los términos del propio Reglamento.
