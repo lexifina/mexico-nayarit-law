@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE NOVIEMBRE DE 2013)
+ARTÍCULO 70-N.- El Centro Estatal de Trasplantes implementará un Registro Estatal de Trasplantes, regulado por el reglamento interno en la materia, el cual integrará la información de las donaciones, trasplantes y lista de pacientes en espera de un órgano o tejido cadavérico, a través de un control que contendrá los datos de los donadores debidamente relacionados con los de los trasplantados. Dicha información será catalogada de carácter confidencial.

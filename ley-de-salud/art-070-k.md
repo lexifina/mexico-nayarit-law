@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE NOVIEMBRE DE 2013)
+ARTÍCULO 70-K.- El Centro Estatal de Trasplantes, será un organismo dependiente de la Secretaría de Salud de Nayarit, que tendrá a su cargo coordinar, promover y consolidar la cultura de donación de órganos y tejidos de seres humanos con fines terapéuticos. Se integrará y funcionará de conformidad con su Reglamento interno, respetando en todo momento lo estipulado por la Ley General de Salud.
