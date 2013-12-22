@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 21 DE DICIEMBRE DE 2013)
+Artículo 22-A.- Las Personas Morales sujetas a la retención de este impuesto, además de las obligaciones establecida en el artículo 19 párrafo segundo de esta Ley, tendrán las siguientes obligaciones:
+I. Solicitar su inscripción en el Registro Estatal de Contribuyentes;
+II. Expedir y conservar las constancias de retención del impuesto cedular de forma mensual a las personas físicas que le arrenden bienes inmuebles, las cuales podrá capturar en la página web oficial de la Secretaría de Administración y Finanzas, para que acrediten los ingresos por los cuales se derivó la retención, debiendo reunir los requisitos establecidos en el Código Fiscal de la Federación y el Código Fiscal del Estado de Nayarit;
+III. Conservar los recibos que acrediten el arrendamiento de bienes inmuebles y la retención efectivamente realizada, debiendo reunir los requisitos establecidos en el Código Fiscal de la Federación y el particular del Estado de Nayarit, y
+IV. Enterar de forma mensual las retenciones efectuadas como lo establece el artículo 19 segundo párrafo de esta Ley, en los formatos establecidos por la Secretaría de Administración y Finanzas, asimismo tendrán la obligación de presentar declaración en ceros cuando en el mes a declarar no existiera retención alguna.
