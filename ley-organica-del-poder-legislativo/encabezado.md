@@ -1,5 +1,4 @@
 LEY ORGÁNICA DEL PODER LEGISLATIVO DEL ESTADO DE NAYARIT
-N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DE 16 DE ENERO DE 2014.
 Ley publicada en la Sección Séptima del Periódico Oficial del Estado de Nayarit, el sábado 5 de mayo de 2007.
 Al margen un Sello con el Escudo Nacional que dice: Estados Unidos Mexicanos.- Poder Legislativo.- Nayarit.
 LIC. NEY GONZÁLEZ SÁNCHEZ, Gobernador Constitucional del Estado Libre y Soberano de Nayarit, a los habitantes del mismo sabed:
