@@ -1,4 +1,4 @@
-LEY DE CULTURA FISICA Y DEPORTE PARA EL ESTADO DE NAYARIT
+LEY DE CULTURA FÍSICA Y DEPORTE PARA EL ESTADO DE NAYARIT
 Ley publicada en la Sección Quinta del Periódico Oficial del Estado de Nayarit, el sábado 3 de abril de 2010.
 Al margen un Sello con el Escudo Nacional que dice: Estados Unidos Mexicanos.- Poder Legislativo.- Nayarit.
 LIC. NEY GONZÁLEZ SÁNCHEZ, Gobernador Constitucional del Estado Libre y Soberano de Nayarit, a los habitantes del mismo, sabed:

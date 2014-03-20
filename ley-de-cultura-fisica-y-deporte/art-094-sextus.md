@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 19 DE MARZO DE 2014)
+Artículo 94 Sextus.- Toda persona en calidad de asistente o espectador que acuda a la celebración de un evento deportivo, deberá:
+I. Acatar las disposiciones normativas relacionadas con la celebración de eventos deportivos que emita el Instituto, así como las de la localidad en donde se lleven a cabo, y
+II. Cumplir con las indicaciones señaladas por el organizador, mismas que deberán contener las causas por las que se pueda impedir su entrada a las instalaciones donde se llevará a cabo dicho espectáculo. Con estricto respeto a las disposiciones y procedimientos previstos en las leyes u ordenamientos en materia de responsabilidades administrativas, civiles y penales aplicables de carácter federal, estatal, del Distrito Federal y municipal, los asistentes o espectadores que cometan actos que generen violencia u otras acciones sancionables al interior o en las inmediaciones de los espacios destinados a la realización de la cultura física, el deporte y en las que se celebren eventos deportivos en cualquiera de sus modalidades, serán sujetos a la aplicación de la sanción correspondiente conforme a los ordenamientos referidos por la autoridad competente.
+Capítulo III
+De las Sanciones por Infracción a esta Ley
+Sección Primera
+De las infracciones y Sanciones

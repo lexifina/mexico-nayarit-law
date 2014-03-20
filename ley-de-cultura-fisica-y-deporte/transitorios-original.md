@@ -61,3 +61,4 @@ Título Décimo Primero. De la Participación de los Municipios
 Capítulo Único. De los Instituto Municipales de Cultura Física
 y Deporte23
 Transitorios25
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
