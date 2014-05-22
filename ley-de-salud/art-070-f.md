@@ -1,2 +1,4 @@
-(ADICIONADO, P.O. 2 DE NOVIEMBRE DE 2013)
+(REFORMADO, P.O. 21 DE MAYO DE 2014)
 ARTÍCULO 70-F.- La promoción de la cultura de donación órganos y tejidos entre la población del Estado será de interés público, como forma esencialmente humanista y de solidaridad entre los individuos, en virtud de que representa una alternativa para recobrar la salud de las personas.
+La Secretaría de Salud de la entidad dentro del ámbito de su competencia, deberá impulsar la donación de sangre, componentes sanguíneos y células troncales o progenitoras, para coadyuvar en el tratamiento o curación de los pacientes que las requieran. La Secretaría de Salud de la entidad fijará las bases y modalidades a las que se sujetará el Sistema Estatal de Salud al respecto.
+La Secretaría de Salud de la entidad, dentro del ámbito de su competencia podrá coadyuvar al cumplimiento de las disposiciones que regulen tanto la infraestructura con que deberán contar los bancos de sangre que lleven a cabo actos de disposición y distribución de células progenitoras hematopoyéticas, como la obtención, procesamiento y distribución de dichas células.
