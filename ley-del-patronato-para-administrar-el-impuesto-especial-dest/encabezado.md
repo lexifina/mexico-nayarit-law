@@ -1,4 +1,4 @@
-LEY DEL PATRONATO PARA ADMINISTRAR EL IMPUESTO ESPECIAL DESTINADO A LA UNIVERSIDAD AUTONOMA DE NAYARIT
+LEY DEL PATRONATO PARA ADMINISTRAR EL IMPUESTO ESPECIAL DESTINADO A LA UNIVERSIDAD AUTÓNOMA DE NAYARIT
 Ley publicada en la Segunda Sección del Periódico Oficial del Estado de Nayarit, el miércoles 29 de noviembre de 1995.
 Al margen un Sello con el Escudo Nacional que dice:
 Estados Unidos Mexicanos.- Poder Legislativo.- Nayarit.
