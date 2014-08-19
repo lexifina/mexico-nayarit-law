@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 18 DE AGOSTO DE 2014)
+ARTICULO 506 TER.- Se deberá recabar la opinión del menor de edad, siempre que de acuerdo a su edad y circunstancias personales sea factible escucharlo.
+La diligencia en la que se escuche la opinión del menor deberá de practicarse en audiencia especial ante el personal del juzgado, el representante de la Procuraduría de la Defensa del Menor y la Familia y el Agente del Ministerio Público.
+En el caso de menores que cuenten con la edad de entre cinco a diez años, la diligencia se llevará a cabo con la intervención necesaria de un perito en psicología o de pedagogía infantil, a efecto de que asista al juez en dicha diligencia; tratándose de menores de entre diez y dieciséis años, la diligencia podrá llevarse a cabo sin la asistencia de perito referido, salvo que del dictamen de valoración psicológica se evidencie la necesidad de su intervención.
