@@ -1,4 +1,5 @@
 LEY ORGÁNICA DE LA FISCALÍA GENERAL DEL ESTADO DE NAYARIT
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL DECRETO SIN NÚMERO DE LA DECLARATORIA DE IMPLEMENTACIÓN DEL SISTEMA DE JUSTICIA PENAL ACUSATORIO EN EL ESTADO DE NAYARIT, VÉASE LOS ARTÍCULOS PRIMERO, SEGUNDO, TERCERO Y CUARTO PUBLICADOS EN EL P.O. DE 18 DE AGOSTO DE 2014.
 Ley publicada en la Sección Tercera del Periódico Oficial del Estado de Nayarit, el jueves 15 de mayo de 2014.
 Al margen un Sello con el Escudo Nacional que dice: Estados Unidos Mexicanos.- Poder Legislativo.- Nayarit.
 ROBERTO SANDOVAL CASTAÑEDA, Gobernador Constitucional del Estado Libre y Soberano de Nayarit, a los habitantes del mismo, sabed:
