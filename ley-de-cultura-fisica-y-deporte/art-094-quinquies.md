@@ -1,5 +1,5 @@
-(ADICIONADO, P.O. 19 DE MARZO DE 2014)
-Artículo 94 Quintus.- Dentro de los lineamientos que emite el Instituto a que se refiere el artículo anterior, deberán regularse en lo concerniente al acceso a los eventos deportivos, de manera enunciativa, las siguientes medidas:
+(ADICIONADO, P.O. 19 DE MARZO DE 2014) (REFORMADA SU DENOMINACIÓN, P.O. 8 DE NOVIEMBRE DE 2014)
+Artículo 94 Quinquies.- Dentro de los lineamientos que emite el Instituto a que se refiere el artículo anterior, deberán regularse en lo concerniente al acceso a los eventos deportivos, de manera enunciativa, las siguientes medidas:
 I. La introducción de armas, elementos cortantes, punzantes, contundentes u objetos susceptibles de ser utilizados como tales, mismos que puedan poner en peligro la integridad física de los deportistas, entrenadores, directivos, árbitros y de espectadores o asistentes en general;
 II. El ingreso y utilización de petardos, bombas de estruendo, bengalas, fuegos de artificio u objetos análogos;
 III. La introducción de banderas, carteles, pancartas, mantas o elementos gráficos que atenten contra la moral, la sana convivencia o inciten a la violencia, así como cualquier elemento que impida la plena visualización de los espectadores o aficionados en general;

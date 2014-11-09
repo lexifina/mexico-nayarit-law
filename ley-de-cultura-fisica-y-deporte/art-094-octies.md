@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE NOVIEMBRE DE 2014)
+Artículo 94 Octies.- Para la celebración de eventos deportivos masivos o con fines de espectáculo, las instalaciones en que pretendan realizarse, independientemente del origen de los fondos con que hayan sido construidas, deberán contar con el equipamiento de seguridad pública y de protección civil, así como elaborar el programa interno de protección civil en los términos de lo señalado en el artículo 43 Bis de la Ley de Protección Civil para el Estado de Nayarit.
