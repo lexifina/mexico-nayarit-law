@@ -16,4 +16,4 @@ CARLOS ENRIQUE GARCIA CAMBERO MARGARITA BASTO PAREDES
 Y en cumplimiento de lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic, su Capital a los veinticuatro días del mes de Abril del año dos mil uno.
 El Secretario General de Gobierno
 Lic. Adán Meza Barajas
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.

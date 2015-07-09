@@ -7,6 +7,6 @@ IV. El personal técnico se abstendrá de dar mal uso a su clave secreta, por lo
 V. Se debe cumplir con la Ley de Salud y con las exigencias laborales en cuanto a prestaciones y salarios dignos.
 VI. Los permisionarios deberán guardar un archivo con los expedientes de los vehículos verificados, el cual deberán conservar por un mínimo de dos años para consulta de la Secretaria; y
 VII. Los permisionarios y su personal, no deberán expedir certificados, hologramas y constancias de rechazo que pertenezcan a otros Centros.
-(ADICIONADA CON LOS ARTICULOS QUE LA INTEGRAN, P.O. 4 DE JULIO DE 2007)
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 4 DE JULIO DE 2007)
 SECCIÓN V
 De la Inspección y Vigilancia a los Centros de Verificación
