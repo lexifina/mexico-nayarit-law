@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE SEPTIEMBRE DE 2015)
+Artículo 13 Bis.- En coordinación con la Secretaría de Salud de la entidad, las instituciones educativas y las dependencias de la administración pública estatal, en los ámbitos de sus respectivas competencias promoverán campañas contra la obesidad, el sobrepeso y los trastornos alimenticios, mediante la realización de jornadas deportivas, conferencias sobre sana alimentación y monitoreo constante de la salud, debiendo en todo momento procurar las practicas del ejercicio, así como la alimentación sana y balanceada.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE SEPTIEMBRE DE 2015)
+Artículo 19 Bis.- En el ámbito de su competencia, los gobiernos municipales, las autoridades educativas y demás instancias correspondientes promoverán acciones encaminadas a regular el comercio ambulante próximo a las escuelas vigilando en su caso que durante los horarios escolares, así como en las horas próximas a la entrada y salida de las instituciones educativas, se evite la venta de alimentos bajos en contenido nutricional que propicien la obesidad, el sobrepeso o los trastornos alimenticios.
