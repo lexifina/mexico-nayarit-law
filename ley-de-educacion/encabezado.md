@@ -1,5 +1,4 @@
 LEY DE EDUCACIÓN DEL ESTADO DE NAYARIT
-N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 26 DE MARZO DE 2014.
 Ley publicada en la Segunda Sección del Periódico Oficial del Estado de Nayarit, el miércoles 13 de julio de 1994.
 Al margen un Sello con el Escudo Nacional que dice:
 Estados Unidos Mexicanos.- Poder Legislativo.- Nayarit.-
