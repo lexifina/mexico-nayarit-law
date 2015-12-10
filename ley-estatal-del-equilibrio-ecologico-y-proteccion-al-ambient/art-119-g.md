@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2015)
+Artículo 119 G.- El Programa Estatal de Cambio Climático es el instrumento rector en la materia, contiene mecanismos y acciones que se deberán desarrollar en el ámbito estatal, a fin de mitigar los gases de efecto invernadero y crear condiciones para la adaptación al cambio climático.
+El programa diseñará estrategias para la promoción de planes y proyectos cuyo objetivo sea la reducción y captura de gases de efecto invernadero y contendrá un plan de acción en el que se determinarán metas a corto, mediano y largo plazo a fin de mitigar la emisión de gases de efecto invernadero y crear condiciones para la adaptación al cambio climático.

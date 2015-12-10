@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2015)
+Artículo 119 E.- La Comisión celebrará sesiones ordinarias cuando menos dos veces por año, pudiendo sesionar en forma extraordinaria a petición de la mayoría de sus miembros o cuando se estime necesario en casos de inminente urgencia. Invariablemente las convocatorias a sesiones serán emitidas por su presidente en los términos previstos por el reglamento interno.
+Para que las sesiones de la Comisión tengan validez, se requerirá la presencia de la mitad más uno de sus integrantes. Los acuerdos y resoluciones se tomarán por mayoría de votos de los miembros presentes, en caso de empate el presidente tendrá voto de calidad.

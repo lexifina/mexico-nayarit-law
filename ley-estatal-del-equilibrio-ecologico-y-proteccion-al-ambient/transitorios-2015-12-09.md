@@ -1,0 +1,7 @@
+P.O. 9 DE DICIEMBRE DE 2015.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA ADICIONA Y DEROGA DIVERSOS ARTÍCULOS DE LA LEY ESTATAL DEL EQUILIBRIO ECOLÓGICO Y PROTECCIÓN AL AMBIENTE DEL ESTADO DE NAYARIT".]
+Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+Segundo.- Cuando se haga referencia a la Secretaría de Desarrollo Rural y Medio Ambiente se entenderá por nombrada la Secretaría del Medio Ambiente, en tanto no entre en vigor el decreto por el cual se fusionan dependencias, de conformidad con lo dispuesto por la fe de erratas de fecha 24 de octubre de 2015 al decreto que reforma, deroga y adiciona diversas disposiciones de la Ley Orgánica del Poder Ejecutivo del Estado de Nayarit; publicado en el periódico Oficial con fecha 03 de octubre del presente año.
+Tercero.- La Comisión Intersecretarial de Cambio Climático y el Consejo Estatal de Protección al Ambiente y Cambio Climático deberán instaurarse dentro de los sesenta días a partir de la entrada en vigor del presente decreto.
+Cuarto.- La Comisión Intersecretarial de Cambio Climático y el Consejo Estatal de Protección al Ambiente y Cambio Climático deberán emitir sus respectivos reglamentos internos dentro de los sesenta días a partir de su integración.
+Quinto.- El Programa Estatal de Cambio Climático, deberá realizarse dentro de los noventa días posteriores a la conformación de la Comisión Intersecretarial de Cambio Climático y el Consejo Estatal de Protección al Ambiente y Cambio Climático.
