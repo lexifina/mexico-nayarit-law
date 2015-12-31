@@ -1,0 +1,10 @@
+CÓDIGO PENAL PARA EL ESTADO DE NAYARIT
+N. DE E. DE CONFORMIDAD CON EL ARTÍCULO SEGUNDO TRANSITORIO, EL PRESENTE ORDENAMIENTO ENTRA EN VIGOR GRADUALMENTE EN LOS TÉRMINOS PREVISTOS EN LA DECLARATORIA QUE MEDIANTE BANDO SOLEMNE EMITA EL CONGRESO DEL ESTADO DE NAYARIT, PREVIA SOLICITUD DE LA SECRETARÍA TÉCNICA DE LA COMISIÓN DE COORDINACIÓN INTERINSTITUCIONAL PARA LA IMPLEMENTACIÓN DEL SISTEMA DE JUSTICIA PENAL ACUSATORIO; LA VIGENCIA TOTAL DEL PRESENTE CÓDIGO NO PODRÁ EXCEDER DEL 18 DE JUNIO DE 2016.
+N. DE E. LA DECLARATORIA DE IMPLEMENTACIÓN DEL SISTEMA DE JUSTICIA PENAL ACUSATORIO EN EL ESTADO DE NAYARIT FUE PUBLICADA EN EL P.O. DE 18 DE AGOSTO DE 2014.
+Código publicado en la Sección Cuarta del Periódico Oficial del Gobierno del Estado de Nayarit, el sábado 6 de septiembre de 2014.
+Al margen un Sello con el Escudo Nacional que dice: Estados Unidos Mexicanos.- Poder Legislativo.- Nayarit.
+ROBERTO SANDOVAL CASTAÑEDA, Gobernador Constitucional del Estado Libre y Soberano de Nayarit, a los habitantes del mismo, sabed:
+Que el H. Congreso Local, se ha servido dirigirme para su promulgación, el siguiente:
+Decreto
+El Congreso del Estado Libre y Soberano de Nayarit representado por su XXX Legislatura, decreta:
+CÓDIGO PENAL PARA EL ESTADO DE NAYARIT
