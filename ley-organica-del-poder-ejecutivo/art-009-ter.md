@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 5 DE SEPTIEMBRE DE 2015)
-ARTICULO 9° TER. El Ejecutivo del Estado, y los municipios, por conducto de la dependencia que corresponda, deberán llevar un padrón y registro de la propiedad inmobiliaria, con la finalidad de tener un control interno de los bienes del dominio público o privado que se encuentren dentro de su patrimonio, los que deberán ser organizados, clasificados y registrados en el Registro Público de la Propiedad y el Catastro del Estado.
-La clasificación y registro de los bienes inmuebles del dominio público o privado se llevará de conformidad con lo que establece la Ley del Registro Público de la Propiedad y del Catastro para el Estado y Municipios de San Luis Potosí, y las demás disposiciones administrativas y contables aplicables.
