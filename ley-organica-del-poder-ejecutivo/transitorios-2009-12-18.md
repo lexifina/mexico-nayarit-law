@@ -1,7 +1,0 @@
-P.O. 18 DE DICIEMBRE DE 2009.
-Artículo Primero.- El presente decreto entrara en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
-Artículo Segundo.- En razón de la redistribución de competencias, cuando la ley haga referencia a alguna atribución conferida a alguna de las secretarías que han sido modificadas en su denominación, se entenderá que estas deben ser ejercidas por cada una de las Secretarías creadas en el presente Decreto, atendiendo a la naturaleza de que y ramo de que se trate.
-Artículo Tercero.- A la entrada en vigor del presente decreto, se iniciará el traspaso de los recursos humanos, materiales, técnicos y financieros, de conformidad con el acuerdo de transferencia que al efecto disponga el Titular del Poder Ejecutivo.
-Artículo Cuarto.- En la transferencia de los recursos humanos se deberán respetar los derechos laborales de los trabajadores.
-Artículo Quinto.- Dentro del plazo cuatro meses contados a partir de la entrada en vigor del presente decreto, se deberán realizar los cambios conducentes al Presupuesto de Egresos, de conformidad al Programa de Transferencia de Recursos a que se refiere el artículo anterior.
-Artículo Sexto.- Los asuntos que con motivo de esta reforma deban pasar a la competencia de las Secretarías que se crean con este decreto, permanecerán en el último trámite que hubieren alcanzado hasta que las unidades administrativas que los realicen se incorporen a cada una de las secretarías, cuando su materia así lo permita.
