@@ -5,11 +5,9 @@ I. Con fecha 31 de diciembre de 2015 entrarán en vigor:
 a) En los municipios de Santa María del Oro, Tepic y Xalisco, Nayarit, la totalidad de los delitos que no ameritan prisión preventiva oficiosa.
 b) En todo el territorio del Estado los delitos de homicidio, secuestro, extorsión, narcomenudeo y abigeato.
 Estos delitos se juzgarán conforme lo determine el Pleno del Consejo de la Judicatura del Poder Judicial del Estado de Nayarit.
-II. Con fecha 30 de abril de 2016 entrarán en vigor:
-a) En los municipios de Bahía de Banderas, Compostela y San Pedro Lagunillas, Nayarit, la totalidad de los delitos que no ameritan prisión preventiva oficiosa.
-b) En todo el territorio del Estado los delitos de fraude, abuso de confianza y robo calificado.
-Estos delitos se juzgarán conforme lo determine el Pleno del Consejo de la Judicatura del Poder Judicial del Estado de Nayarit.
-III. Con fecha 31 de mayo de 2016 entrarán en vigor en todo el territorio del Estado el resto de los delitos contemplados en el Código Penal para el Estado de Nayarit y aquellos en los cuales los tribunales del Estado sean competentes.
+(REFORMADA, P.O. 26 DE ABRIL DE 2016)
+II. Con fecha 15 de junio de 2016 entrarán en vigor en todo el territorio del Estado el resto de los delitos contemplados en el Código Penal para el Estado de Nayarit y aquellos en los cuales los tribunales del Estado sean competentes.
+III. (DEROGADA, P.O. 26 DE ABRIL DE 2016)
 Artículo Segundo.- Cuando se actualice algún concurso de delitos y alguno o algunos de ellos ya se encuentren incorporados al nuevo sistema de justicia penal conforme a la presente Declaratoria, el proceso se substanciará conforme a éste.
 Artículo Tercero.- Para efectos del artículo segundo transitorio, párrafo segundo, del Código Nacional de Procedimientos Penales, dicho ordenamiento entrará en vigor en los mismos términos que se señalan en el Artículo Primero de la presente Ampliación de Declaratoria.
 Artículos Transitorios
