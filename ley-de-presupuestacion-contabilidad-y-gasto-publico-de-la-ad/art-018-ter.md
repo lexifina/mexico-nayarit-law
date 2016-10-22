@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 21 DE OCTUBRE DE 2016)
+ARTICULO 18 TER.- La Secretaría de Administración y Finanzas realizará una estimación del impacto presupuestario de las iniciativas de ley o decretos que se presenten a la consideración del Congreso del Estado. Asimismo, realizará estimaciones sobre el impacto presupuestario de las disposiciones administrativas que impliquen costos para su implementación.
+Todo proyecto de ley o decreto que sea sometido a votación del Pleno del Congreso del Estado, deberá incluir en su dictamen correspondiente una estimación sobre el impacto presupuestario del proyecto.
+La aprobación y ejecución de nuevas obligaciones financieras derivadas de la legislación local, se realizará en el marco del principio de balance presupuestario sostenible, por lo cual, se sujetarán a la capacidad financiera del Estado.
