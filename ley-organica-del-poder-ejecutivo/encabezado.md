@@ -1,5 +1,4 @@
 LEY ORGÁNICA DEL PODER EJECUTIVO DEL ESTADO DE NAYARIT
-N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 24 DE OCTUBRE DE 2015.
 Ley publicada en la Segunda Sección del Periódico Oficial del Estado de Nayarit, el jueves 21 de diciembre del 2000.
 C.P. ANTONIO ECHEVARRIA DOMINGUEZ, Gobernador Constitucional del Estado Libre y Soberano de Nayarit, a los habitantes del mismo, sabed.
 Que el H. Congreso Local, se ha servido dirigirme para su promulgación, el siguiente
