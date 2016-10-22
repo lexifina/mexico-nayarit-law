@@ -1,0 +1,5 @@
+P.O. 21 DE OCTUBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSOS ARTÍCULOS DE LA LEY ORGÁNICA DEL PODER LEGISLATIVO DEL ESTADO DE NAYARIT, EN MATERIA DE DISCIPLINA FINANCIERA".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado, salvo por lo previsto en los transitorios siguientes.
+SEGUNDO. Las reglas relacionadas con la elaboración del presupuesto anual del Poder Legislativo, contenidas en el artículo 35 fracción IV entrarán en vigor para efectos del ejercicio fiscal 2017, y de conformidad con lo establecido en la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios.
+TERCERO. El Reglamento para el Gobierno Interior del Congreso que se encuentre vigente, en tanto no se modifique, se seguirá aplicando en lo que no se oponga al presente Decreto. Sin perjuicio de lo anterior, se deberán realizar las modificaciones necesarias al Reglamento para el Gobierno Interior del Congreso, en un plazo de hasta un año.
