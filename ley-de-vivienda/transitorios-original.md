@@ -8,3 +8,4 @@ Artículo Sexto.- En un plazo no mayor de 180 días naturales deberá adecuarse 
 D A D O en la universidad Tecnológica de Nayarit, decreta Recinto Provisional del Poder Legislativo del Estado Libre y Soberano de Nayarit, a los veintiocho días del mes de mayo del año dos mil nueve.
 Dip. Rodolfo Coronado Montaño, Presidente.- Rúbrica.- Dip. Miguel Antonio Fregozo Rivera, Secretario.- Rúbrica.- Dip. Marco Antonio Cambero Gómez, Secretario.- Rúbrica.
 Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los cuatro días del mes de junio del año dos mil nueve.- Lic. Ney González Sánchez.- Rúbrica.- El Secretario General de Gobierno, Dr. Roberto Mejía Pérez.- Rúbrica.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
