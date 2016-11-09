@@ -6,3 +6,4 @@ Artículo Cuarto.- Los actos reclamables objeto de esta ley, serán los aconteci
 DADO en la Sala de Sesiones "Lic. Benito Juárez" del Honorable Congreso del Estado de Nayarit, en Tepic, su Capital, a los diez días del mes de abril del año dos mil seis.
 Dip. Antonio Sandoval Pazos, Presidente.- Rúbrica.- Dip. Ma. Eugenia García Espino, Secretario.- Rúbrica.- Dip. Rafael Vega Herrera, Secretario.- Rúbrica.
 Y en cumplimiento a lo dispuesto en la fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los veinte días del mes de Abril del año dos mil seis.- Lic. Ney González Sánchez.- Rúbrica.- La Secretaria General de Gobierno, Profa. Cora Cecilia Pinedo Alonso.- Rubrica.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
