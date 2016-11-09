@@ -8,4 +8,4 @@ ELVIA M. ALVAREZ LOPEZJUAN CARRILLO CHAVEZ
 Y en cumplimiento de lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic, su Capital, a los veinte días del mes de octubre de mil novecientos ochenta (sic) nueve.
 El Secretario General de Gobierno.
 Lic. Pedro Ponce de León Montes.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
