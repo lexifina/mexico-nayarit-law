@@ -12,3 +12,4 @@ CARLOS ENRIQUE GARCÍA CAMBERO.-
 Y en cumplimiento de lo dispuesto en la fracción II del artículo 69 de la Constitución Política del Estado, y para su debida observancia, promulgo el presente Decreto, en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su Capital, a los veintitrés días del mes de mayo del año dos mil dos.
 El Secretario General de Gobierno
 Lic. Adán Meza Barajas.-
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
