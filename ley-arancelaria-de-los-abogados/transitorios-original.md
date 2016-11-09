@@ -20,3 +20,4 @@ Capítulo X. Asuntos Agrarios8
 Capítulo XI. Tramitación de Juicios de Amparo8
 Capítulo XII. De la ética profesional9
 Transitorios10
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
