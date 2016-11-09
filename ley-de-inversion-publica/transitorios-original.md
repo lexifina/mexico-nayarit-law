@@ -11,3 +11,4 @@ El Gobernador del Estado.
 Rigoberto Ochoa Zaragoza.
 El Secretario General de Gobierno.
 Lic. Sigfrido de la Torre Miramontes.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
