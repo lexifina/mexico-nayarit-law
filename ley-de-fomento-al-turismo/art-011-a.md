@@ -14,8 +14,12 @@ XI. Inscribirse en el Registro Estatal de Turismo y obtener la cédula de calida
 XII. Atender la normatividad y las recomendaciones que formulen las autoridades competentes en materia de seguridad y protección civil;
 XIII. Respetar los usos y costumbres de los turistas, siempre que éstos no sean contrarios a las leyes;
 XIV. Coadyuvar a la preservación del medio ambiente y los recursos turísticos de conformidad con esta Ley y demás legislación de la materia;
-XV. Procurar la buena imagen de los servicios turísticos que presten, y
-XVI. Las demás que establezcan esta Ley y otras disposiciones legales y reglamentarias aplicables.
+(REFORMADA, P.O. 3 DE DICIEMBRE DE 2016)
+XV. Procurar la buena imagen de los servicios turísticos que presten;
+(REFORMADA, P.O. 3 DE DICIEMBRE DE 2016)
+XVI. Prestar servicios atendiendo lo establecido en la presente Ley, la Ley General del Equilibrio Ecológico y la Protección al Ambiente, así como la Ley General de Vida Silvestre, y demás legislación en la materia, y
+(ADICIONADA, P.O. 3 DE DICIEMBRE DE 2016)
+XVII. Las demás que establezcan esta Ley y otras disposiciones legales y reglamentarias aplicables.
 (REFORMADA SU DENOMINACIÓN, P.O. 24 DE MARZO DE 2012)
 CAPÍTULO II
 De los Consejos Consultivos
