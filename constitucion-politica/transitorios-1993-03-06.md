@@ -1,3 +1,0 @@
-P.O. 6 DE MARZO DE 1993.
-ARTICULO PRIMERO.- El contenido del presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Organo del Gobierno del Estado, en los términos y formalidades a que se refiere el Artículo 131 de la Constitución Política de Nayarit.
-ARTICULO SEGUNDO.- Remítase la Minuta aprobada a los HH. Ayuntamientos Constitucionales del Estado para los efectos a que alude el Artículo 131 de la Constitución Política del Estado Libre y Soberano de Nayarit, a cuyo término deberán computarse los resultados y tramitarse el Decreto promulgatorio respectivo para su turno al Periódico Oficial.

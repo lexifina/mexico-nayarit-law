@@ -1,5 +1,0 @@
-P.O. 22 DE JUNIO DE 2010.
-Artículo Primero.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
-Artículo Segundo.- El Congreso del Estado, deberá realizar las modificaciones a la legislación secundaria en un plazo que no excederá al previsto en el artículo 105 fracción II de la Constitución Política de los Estados Unidos Mexicanos.
-Artículo Tercero.- En cuanto a lo dispuesto por el artículo 81 en su párrafo cuarto de la presente Constitución, en la materia de solución de conflictos mediante procedimientos alternativos de justicia y juicios orales, para los efectos de emitir la legislación secundaria se estará a lo previsto por el artículo segundo transitorio del decreto por el que se reforman y adicionan diversas disposiciones de la Constitución Política de los Estados Unidos Mexicanos, publicado en el Diario Oficial de la Federación el día 18 de junio de 2008.
-Artículo Cuarto.- Para los efectos previstos por el artículo 131 de la Constitución Política del Estado Libre y Soberano de Nayarit, remítase el presente Decreto a los Ayuntamientos de la entidad.

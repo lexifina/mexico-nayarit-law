@@ -1,7 +1,0 @@
-P.O. 16 DE DICIEMBRE DE 2010.
-Artículo Primero.- El presente decreto entrará en vigor al día siguiente de su publicación, en el Periódico Oficial, Órgano del Gobierno del Estado, salvo lo dispuesto en los artículos transitorios siguientes.
-Artículo Segundo.- Para regular lo dispuesto en el artículo 17 del presente decreto el Congreso del Estado contará con un plazo de dos años, contados a partir (sic) su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
-Artículo Tercero.- El Congreso del Estado dispondrá de un plazo de hasta un año para emitir la legislación relacionada con los artículos 2, 4, 5, 47, fracciones IV y XXXVIII y 49, párrafos segundo y tercero, de este decreto, contado a partir de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
-Artículo Cuarto.- La legislación relativa a los artículos 53 y 110 contenidos en el presente decreto, deberá ser expedida por el Congreso del Estado en un plazo de 6 meses, computados a partir su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
-Artículo Quinto.- El Congreso del Estado contará con un plazo de tres años para emitir la legislación secundaria relacionada con el contenido del artículo 137 primer párrafo, que comenzará a contarse a partir de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
-Artículo Sexto.- Para los efectos previstos por el artículo 131 de la Constitución Política del Estado Libre y Soberano de Nayarit, remítase el presente decreto a los Ayuntamientos de la entidad.

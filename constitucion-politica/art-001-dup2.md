@@ -1,1 +1,0 @@
-Art. 1o. Esta Constitución se promulgará por Bando Solemne el día 5 de febrero del corriente año, en la Capital del Estado, empezando a regir desde luego. En las poblaciones foráneas, se publicará oportunamente con la misma solemnidad y surtirá sus efectos desde el día de su publicación.
