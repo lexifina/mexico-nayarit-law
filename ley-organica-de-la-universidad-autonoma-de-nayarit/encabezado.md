@@ -1,5 +1,5 @@
-LEY ORGANICA DE LA UNIVERSIDAD AUTONOMA DE NAYARIT
-Ley publicada en el Periódico Oficial el Sábado 23 de Agosto de 2003.
+LEY ORGÁNICA DE LA UNIVERSIDAD AUTÓNOMA DE NAYARIT
+Ley publicada en el Periódico Oficial del Estado de Nayarit, el sábado 23 de agosto de 2003.
 C.P. ANTONIO ECHEVARRÍA DOMÍNGUEZ, Gobernador Constitucional del Estado Libre y Soberano de Nayarit, a los habitantes del mismo, sabed:
 Que el H. Congreso Local, se ha servido dirigirme para su promulgación, el siguiente:
 DECRETO NUMERO 8500
