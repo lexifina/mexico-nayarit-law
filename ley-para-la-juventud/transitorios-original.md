@@ -8,3 +8,4 @@ Sexto.- Los nombramientos para integrar la Junta de Gobierno del Instituto Nayar
 DADO en la Sala de Sesiones "Lic. Benito Juárez" recinto oficial del H. Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los diez días del mes de septiembre del año dos mil nueve.
 Dip. Manuel Narváez Robles, Presidente.- Rúbrica.- Dip. Jesús Castañeda Tejeda, Secretario.- Rúbrica.- Dip. Luis Alberto Salinas Cruz, Secretario.- Rúbrica.
 Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los dieciocho días del mes de septiembre del año dos mil nueve.- Lic. Ney González Sánchez.- Rúbrica.- El Secretario General de Gobierno, Dr. Roberto Mejía Pérez.- Rúbrica.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

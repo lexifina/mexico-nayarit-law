@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE MARZO DE 2017)
+Artículo 5 bis.- El Estado y los ayuntamientos en sus ámbitos de competencia fomentarán planes y programas, estrategias y líneas de acción para impulsar el empleo juvenil, bolsas de trabajo, capacitación laboral, financiamiento para proyectos productivos, el autoempleo, así como políticas públicas en coordinación con el gobierno federal, que promuevan la oportunidad de trabajo para los jóvenes.

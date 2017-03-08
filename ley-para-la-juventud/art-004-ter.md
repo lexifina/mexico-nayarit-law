@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE MARZO DE 2017)
+Artículo 4 ter.- Los poderes del Estado, los ayuntamientos, los organismos constitucionales autónomos, en los ámbitos de sus competencias, así como el sector social y privado, impulsarán el servicio social y las prácticas profesionales del sector educativo, como vínculo para generar el desarrollo profesional y laboral de los jóvenes, acercándolos a la oportunidad de conseguir su primer empleo.
