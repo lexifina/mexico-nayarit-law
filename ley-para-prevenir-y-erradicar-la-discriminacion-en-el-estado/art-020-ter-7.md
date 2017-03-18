@@ -1,0 +1,10 @@
+(ADICIONADO, P.O. 17 DE MARZO DE 2017)
+Artículo 20 Ter 7.- Los entes públicos estatales o municipales, en los ámbitos de sus respectivas competencias, llevarán a cabo, entre otras medidas positivas a favor de la igualdad de oportunidades para las personas Lesbianas, Homosexuales, Bisexuales, Transgéneros, Transexuales, Travestís e Intersexuales, las siguientes:
+I. Fomentar programas de atención, asistencia, información, educación y asesoría en la salud, en especial la salud sexual, incluyendo VIH/ Sida e infecciones de transmisión sexual, de forma completa, actualizada, personalizada, libre de estereotipos, prejuicios o estigmas, y considerando sus condiciones y necesidades específicas;
+II. Promover condiciones de igualdad y respeto de sus derechos;
+III. Promover la igualdad de trato en los ámbitos económico, político, social y cultural en todas las dependencias;
+IV. Impulsar el acceso a los servicios públicos de salud;
+V. Fortalecer la participación y promoción laboral de las personas Lesbianas, Homosexuales, Bisexuales, Transgéneros, Transexuales, Travestís e Intersexuales, en las diversas dependencias de los poderes en el Estado;
+VI. Incentivar programas con enfoque de derechos humanos y de género que contemplen la sensibilización e información a empresas y a las y los empresarios sobre la población de Lesbianas, Homosexuales, Bisexuales, Transgéneros, Transexuales, Travestís e Intersexuales y sus derechos humanos laborales; que otorguen reconocimiento a empresas y/o a las y los empresarios que adopten públicamente posturas en contra de la discriminación por orientación o preferencia sexual y por identidad o expresión de género, y que den a conocer los diferentes programas, medidas y acciones para reconocer, respetar, garantizar y promover sus derechos;
+VII. Impulsar campañas de información en los medios de comunicación para sensibilizar a la sociedad, a fin de prevenir y eliminar toda forma de discriminación y violencia en contra de las personas, con orientación sexual distinta a la heterosexual, y
+VIII. Reconocer y respetar la conformación y diversidad de las familias en el Estado.
