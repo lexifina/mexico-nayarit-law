@@ -1,0 +1,5 @@
+P.O. 30 DE SEPTIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DEL CÓDIGO PENAL PARA EL ESTADO DE NAYARIT, EN MATERIA DE FEMINICIDIO".]
+Primero.- El presente Decreto entrará en vigor a los ciento ochenta días contados a partir de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
+Segundo.- El artículo 361 fracción IX, del Código Penal para el Estado de Nayarit, seguirá surtiendo efectos en las investigaciones y procesos respecto de los hechos cometidos con anterioridad a la entrada en vigor del presente Decreto.
+Tercero.- Antes de la entrada en vigor del presente Decreto, la Fiscalía General del Estado deberá integrar la Unidad Especializada en Prevención, Combate y Erradicación de la Violencia contra la Mujer por cuestión de Género, así como emitir el Protocolo de Investigación del Delito de Feminicidio. Para tales efectos, en el Presupuesto de Egresos del Estado para el ejercicio fiscal 2017 deberán realizarse las previsiones presupuestales necesarias.
