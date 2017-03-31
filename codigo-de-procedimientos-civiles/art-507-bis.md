@@ -1,4 +1,3 @@
-(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2000)
-ARTICULO 507 Bis.- Podrá ejercitarse acción para retener o recuperar la posesión de derechos paterno-filiales.
-(F. DE E., P.O. 10 DE ENERO DE 2001)
-Cuando se trate de la posesión de estado de hijos menores de siete años, éstos deberán permanecer al lado de su madre, salvo que ésta realice actos inmorales que tiendan a la corrupción de aquellos o tenga hábito de embriaguez o haga uso indebido y persistente de drogas enervantes que amenacen causar la ruina de sus hijos.
+(REFORMADO, P.O. 30 DE MARZO DE 2017)
+ARTICULO 507 Bis.- En todo momento se podrá ejercitar acción para retener o recuperar el ejercicio de las relaciones paterno-filiales. Para resolver dichas acciones el juez garantizará que las niñas, niños y adolescentes expresen de manera libre su opinión conforme a su edad, su desarrollo evolutivo, cognitivo y madurez, caso contrario el juez considerará lo señalado en el artículo 409 del Código Civil.
+Al momento de decidir sobre la guarda, custodia y patria potestad el juez deberá considerar cualquier medio probatorio que genere convicción ponderando en todo momento el interés superior del menor para garantizar su pleno y libre desarrollo.
