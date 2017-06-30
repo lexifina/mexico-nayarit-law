@@ -1,0 +1,8 @@
+P.O. 27 DE JUNIO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY MUNICIPAL PARA EL ESTADO DE NAYARIT, EN MATERIA DE COMBATE A LA CORRUPCIÓN."]
+Primero. El presente Decreto entrará en vigor el dieciocho de julio del dos mil diecisiete, previa publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
+Segundo. A partir de la entrada en vigor del presente Decreto, cada titular de la Contraloría Municipal, según estime conveniente, iniciará el procedimiento respectivo para la designación de los titulares de los Órganos Internos de Control y ejercerán sus atribuciones en los términos de este Decreto.
+Tercero. Las entidades de la administración municipal proporcionarán a los órganos internos de control los espacios físicos, los recursos humanos, materiales y presupuestarios que requieran a la entrada en vigor del presente Decreto.
+Cuarto. El titular de la Contraloría de cada Municipio, será ratificados (sic) por mayoría absoluta del Ayuntamiento a la entrada en vigor del presente ordenamiento.
+Quinto. En tanto se realizan las modificaciones conducentes a los formatos, papelería, sellos y demás documentación que obre en las Direcciones de Contraloría y Desarrollo Administrativo, se seguirá utilizando hasta que dichas Direcciones realicen las adecuaciones conducentes sin exceder 180 días naturales a la entrada del presente Decreto.
+Sexto. Las referencias establecidas en otras leyes y disposiciones reglamentarias y administrativas, a la Dirección de Contraloría y Desarrollo Administrativo, se entenderán por realizadas a la Contraloría Municipal y a su titular.
