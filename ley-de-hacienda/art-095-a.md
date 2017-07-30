@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO ARTÍCULO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (ADICIONADO, P.O. 12 DE NOVIEMBRE DE 2016)
 Artículo 95-A.- El Padrón Vehicular del Estado, estará a cargo de la Secretaría de Administración y Finanzas, en el cual se inscribirán los vehículos que por mandato de la Ley de Tránsito y Transportes del Estado, deban de estar registrados, portar placas y tarjetas de circulación asignadas por el Gobierno del Estado.
 Los propietarios de los vehículos refrendarán su registro y pagarán los derechos de control vehicular a más tardar el 31 de marzo de cada año.

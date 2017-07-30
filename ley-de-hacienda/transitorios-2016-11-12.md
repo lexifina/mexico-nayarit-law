@@ -1,7 +1,4 @@
 P.O. 12 DE NOVIEMBRE DE 2016.
 [N. DE E. TRANSITORIOS DEL "DECRETO QUE ADICIONA Y DEROGA DIVERSOS ARTÍCULOS DE LA LEY DE HACIENDA DEL ESTADO DE NAYARIT".]
 ARTICULO PRIMERO.- El presente Decreto entrará en vigor a partir del primero de enero de dos mil diecisiete, previa publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
-ARTICULO SEGUNDO.- Se reduce la aportación que se otorga al Fideicomiso de Promoción Turística del Estado de Nayarit, señalada en la Cláusula Segunda punto del Contrato de Fideicomiso de fecha 30 de Abril de 1997, constituido en virtud del Decreto número 8002, emitido por el H. Congreso del Estado Libre y Soberano de Nayarit, publicado en el Periódico Oficial, órgano del Gobierno del Estado, con fecha 14 de Diciembre de 1996.
-La reducción será de un 100% a un 80% sobre los ingresos que se estime recaudar por el Impuesto al Hospedaje, en la Ley de Ingresos del Estado de Nayarit para el ejercicio fiscal 2017 y subsecuentes.
-Los ingresos excedentes a lo presupuestado en la Ley de Ingresos del ejercicio fiscal 2017 y subsecuentes, no formarán parte del porcentaje que se otorga al Fideicomiso de Promoción Turística.
-El Fideicomitente Único del Gobierno del Estado de Nayarit deberá proceder a modificar el Contrato de Fideicomiso de Promoción Turística del Estado de Nayarit, con efectos a partir de enero del 2017, en los términos aquí expuestos.
+ARTICULO SEGUNDO.- (DEROGADO, P.O. 27 DE JULIO DE 2017)
