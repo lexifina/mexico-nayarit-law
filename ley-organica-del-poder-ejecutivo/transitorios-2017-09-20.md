@@ -1,0 +1,7 @@
+P.O. 20 DE SEPTIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSOS ARTÍCULOS DE LA LEY ORGÁNICA DEL PODER EJECUTIVO DEL ESTADO DE NAYARIT".]
+Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+Segundo.- Una vez publicado el presente Decreto, la Secretaría de Administración y Finanzas, deberá contemplar las adecuaciones correspondientes en el proyecto de Presupuesto de Egresos del Estado para el ejercicio fiscal 2018.
+Tercero.- Dentro de un plazo de noventa días contados a partir de la entrada en vigor del presente Decreto, deberán adecuarse y en su caso expedirse los reglamentos interiores del Sistema para el Desarrollo Integral de la Familia del Estado de Nayarit, la Secretaría General de Gobierno, de Planeación, Programación y Presupuesto y de la Secretaría de Desarrollo Social.
+Cuarto.- A la entrada en vigor del presente Decreto, se realizará el traspaso de los recursos humanos, materiales, técnicos y financieros que en su caso correspondan, de la Secretaría de Planeación, Programación y Presupuesto a la Secretaría de Desarrollo Social, de conformidad con los Acuerdos de transferencia que al efecto disponga el titular del Poder Ejecutivo.
+Quinto.- Los servidores públicos adscritos a la Secretaría de Planeación, Programación y Presupuesto que habrán de asignarse a la Secretaría de Desarrollo Social no resultarán afectados en sus derechos laborales
