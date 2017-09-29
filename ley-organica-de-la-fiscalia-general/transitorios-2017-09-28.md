@@ -1,0 +1,7 @@
+P.O. 28 DE SEPTIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA EL ARTÍCULO 12 DE LA LEY ORGÁNICA DE LA FISCALÍA GENERAL DEL ESTADO DE NAYARIT".]
+Primero. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+Segundo. El Congreso del Estado a partir de la entrada en vigor del presente Decreto contará con cinco días naturales para designar al Encargado del Despacho de la Fiscalía General del Estado.
+Tercero. Quedan a salvo los derechos de los ciudadanos que presentaron solicitud de registro como aspirantes al cargo de Fiscal General del Estado conforme a la convocatoria emitida por el H. Congreso del Estado, el día 7 de abril de 2017.
+Cuarto. El Encargado del Despacho de la Fiscalía General del Estado, estará en funciones hasta en tanto no se designe en definitiva a la persona que asumirá su titularidad, de conformidad al método que establece la Constitución Política del Estado Libre y Soberano de Nayarit, quedando sus derechos a salvo para participar en dicho procedimiento.
+Quinto. A partir de la fecha en que el H. Congreso del Estado designe al encargado de Despacho de la Fiscalía, deberá reanudarse el procedimiento de designación del titular de la Fiscalía General de conformidad con los plazos previstos en la Constitución Política Local, emitiéndose convocatoria dentro de los veinte días hábiles posteriores.
