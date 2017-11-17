@@ -1,8 +1,10 @@
 TRANSITORIOS
 PRIMERO. La presente Ley de Protección de Datos Personales en Posesión de Sujetos Obligados del Estado de Nayarit, entrará en vigor el día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
 SEGUNDO. Los procedimientos en materia de protección de datos personales iniciados bajo la vigencia de la Ley de Transparencia y Acceso a la Información pública del Estado de Nayarit, en lo relativo a protección de datos personales en posesión de sujetos obligados, continuarán y culminarán conforme a la ley mencionada en este párrafo.
+(REFORMADO [N. DE E. REPUBLICADO], P.O. 16 DE NOVIEMBRE DE 2017)
 TERCERO. Los responsables expedirán sus avisos de privacidad en los términos previstos en esta Ley y demás disposiciones aplicables, de manera inmediata después de la entrada en vigor de ésta.
 CUARTO. El Instituto de Transparencia y Acceso a la Información Pública del Estado de Nayarit deberá expedir los lineamientos, parámetros, criterios y demás disposiciones de las diversas materias a que se refiere esa Ley, dentro del plazo estipulado en la Ley General.
 D A D O en la Sala de Sesiones "Lic. Benito Juárez García" recinto oficial del Honorable Congreso del Estado de Nayarit, en Tepic, su capital, a los diecinueve días del mes de octubre del año dos mil diecisiete.
 Dip. Ana Yusara Ramírez Salazar, Presidenta.- Rúbrica.- Dip. Eduardo Lugo López, Secretario.- Rúbrica.- Dip. Marisol Sánchez Navarro, Secretaria.- Rúbrica.
 Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit en Tepic su capital, a los veinte días del mes de octubre del año dos mil diecisiete.- L.C. ANTONIO ECHEVARRÍA GARCÍA.- Rúbrica.- El Secretario General de Gobierno, Lic. Jorge Aníbal Montenegro Ibarra.- Rúbrica.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
