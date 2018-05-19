@@ -13,9 +13,9 @@ X. Atender de manera expedita las denuncias y quejas ciudadanas con relación al
 XI. Organizar, dirigir, administrar y supervisar la Policía Estatal Preventiva, así como garantizar el desempeño honesto de su personal y aplicar su régimen disciplinario;
 XII. Coordinar el registro estatal de personal, armamento y equipo de todos los cuerpos de policía en la entidad en términos de la ley de la materia;
 XIII. Proponer al Ejecutivo el nombramiento del Director de la Policía Estatal Preventiva;
-XIV. Organizar y supervisar a las policías de tránsito del estado, en los términos de la Constitución Política de los Estados Unidos Mexicanos, la particular del Estado y los convenios respectivos;
-XV. Administrar y vigilar el tránsito en las carreteras y caminos de jurisdicción estatal en los términos que señalen las leyes y reglamentos respectivos;
-XVI. Supervisar y controlar el tránsito vehicular y peatonal, conforme lo disponga la ley y los convenios respectivos;
+XIV. (DEROGADA, P.O. 18 DE MAYO DE 2018)
+XV. (DEROGADA, P.O. 18 DE MAYO DE 2018)
+XVI. (DEROGADA, P.O. 18 DE MAYO DE 2018)
 XVII. Salvaguardar la integridad y el patrimonio de las personas, prevenir la comisión de delitos del orden, así como preservar la libertad, el orden y la paz públicos;
 XVIII. Establecer un sistema destinado a obtener, analizar, estudiar y procesar información para la prevención de delitos, mediante métodos que garanticen el estricto respeto a los derechos humanos;
 XIX. Elaborar y difundir estudios multidisciplinarios y estadísticas sobre el fenómeno delictivo;
