@@ -1,3 +1,4 @@
+(REFORMADO PRIMER PÁRRAFO, P.O. 13 DE SEPTIEMBRE DE 2018)
+ARTICULO 114 BIS.- Los propietarios o poseedores de un local, casa habitación o lotes baldíos están obligados a conservar las condiciones de saneamiento básico de los mismos a fin de garantizar la salud publica.
 (ADICIONADO, P.O. 11 DE JULIO DE 2015)
-ARTICULO 114 BIS.- Los propietarios o poseedores de un local o casa habitación están obligados a conservar las condiciones de saneamiento básico de los mismos a fin de garantizar la salud pública.
 Los trabajadores de la salud verificarán que se cumplan con las condiciones de saneamiento básico que determine esta Ley, los reglamentos respectivos, las normas técnicas y las disposiciones legales aplicables; en el supuesto de que el inmueble a verificar se encuentre permanentemente cerrado y la causa que origina la visita represente un riesgo inminente para la salud pública, la autoridad sanitaria competente, previa autorización judicial, efectuará la apertura e ingreso al inmueble, para llevar a cabo las acciones sanitarias necesarias.
