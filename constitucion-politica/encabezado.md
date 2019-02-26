@@ -1,6 +1,5 @@
 [N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NAYARIT
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 11 DE OCTUBRE DE 2018.]
 Constitución publicada en el Periódico Oficial del Estado de Nayarit, los días 17, 21, 24 y 28 de febrero y 3, 7, 10 y 14 de marzo de 1918.
 JOSÉ S. GODÍNEZ, Gobernador Constitucional del Estado Libre y Soberano de Nayarit, a sus habitantes, sabed:
 Que el H. Congreso del Estado ha tenido a bien dirigirme, para su promulgación, la Constitución Política siguiente:
