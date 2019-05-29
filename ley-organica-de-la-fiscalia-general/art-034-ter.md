@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE MAYO DE 2019)
+Artículo 34 Ter.- Luego de verificar el cumplimiento de los requisitos de elegibilidad para la designación de Fiscales Especializados, titulares de Unidades de Investigación y Coordinaciones Regionales, los órganos competentes valorarán los antecedentes y trayectoria profesional de las personas candidatas, con el propósito de evaluar los elementos objetivos y subjetivos que se señalan en esta Ley. Dichos requisitos de elegibilidad deberán cumplir como mínimo con los requisitos señalados en el artículo 95 de la Constitución Local.

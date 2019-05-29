@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE MAYO DE 2019)
+Artículo 34 Bis.- El titular de la Fiscalía General designará y removerá libremente a los titulares de las Fiscalías Especializadas, Unidades de Investigación y Coordinaciones Regionales con base a sus méritos y capacidades para ejercer el cargo, satisfacer un perfil previamente establecido y cubrir los mismos requisitos que para ser Fiscal General del Estado, con excepción de los servidores públicos contemplados en el artículo 5 fracciones I y II, quienes se sujetarán a lo dispuesto por el artículo 100 de la Constitución para el Estado.

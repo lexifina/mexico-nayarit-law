@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 28 DE MAYO DE 2019)
+Artículo 34 Quáter.- Todo proceso de designación estará sujeto a los principios de máxima transparencia y publicidad. Las autoridades que intervengan en dichos procesos deberán hacer pública, de manera proactiva, oportuna, completa y accesible, toda la información y documentación que se reciba, solicite, obtenga o produzca con ocasión del procedimiento, con excepción de aquella que pueda afectar la vida privada e intimidad, de conformidad con la normatividad aplicable en materia de transparencia y acceso a la información pública.
+El incumplimiento de lo antes dispuesto será motivo de responsabilidad, en términos de la normatividad administrativa aplicable.
