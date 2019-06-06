@@ -1,0 +1,7 @@
+TRANSITORIOS
+PRIMERO.- La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO.- La Secretaría de Administración y Finanzas del Gobierno del Estado de Nayarit, preverá en el Presupuesto de Egresos del Estado para el ejercicio fiscal 2020 la asignación de los recursos necesarios para iniciar los trabajos técnicos, diseño arquitectónico y construcción de la Rotonda de los Nayaritas Ilustres a que hace referencia la presente Ley.
+TERCERO.- En un plazo que no exceda de ciento ochenta días contados a partir de la entrada en vigor de la presente Ley, la Comisión de Apoyo deberá publicar su reglamento interno.
+D A D O en la Sala de Sesiones "Lic. Benito Juárez García" del Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los veintinueve días del mes de mayo del año dos mil diecinueve.
+Dip. Ana Yusara Ramírez Salazar, Presidenta.- Rúbrica.- Dip. Marisol Sánchez Navarro, Secretaria.- Rúbrica.- Dip. Erika Leticia Jiménez Aldaco, Secretaria.- Rúbrica.
+Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit en Tepic su capital, a los cinco días del mes de junio del año dos mil diecinueve.- L.C. ANTONIO ECHEVARRÍA GARCÍA.- Rúbrica.- El Secretario General de Gobierno, Lic. José Antonio Serrano Guzmán.- Rúbrica.
