@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE JUNIO DE 2019)
+Artículo 35 bis.- Las instancias encargadas de autorizar los proyectos para la construcción, remodelación, así como la apertura de espacios destinados a prestar servicios al público procurarán que cuenten con rampas de acceso para las personas en sillas de ruedas, escalones universales fijos y móviles para las personas de talla pequeña y guías o surcos lineales para las personas con discapacidad visual.
