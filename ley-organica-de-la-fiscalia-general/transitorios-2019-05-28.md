@@ -1,7 +1,8 @@
 P.O. 28 DE MAYO DE 2019.
 [N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DE LA FISCALÍA GENERAL DEL ESTADO DE NAYARIT".]
 PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
-SEGUNDO. Los órganos o unidades contemplados en la presente ley y los que cambien de denominación en la Fiscalía General al momento de la entrada en vigor del presente decreto, seguirán desarrollando sus funciones y atribuciones, conforme a sus decretos o acuerdos de creación, así como las previstas en la Ley Orgánica de la Fiscalía General del Estado, hasta en tanto se emita el Reglamento Interior.
+(F. DE E., P.O. 28 DE JUNIO DE 2019)
+SEGUNDO. Los órganos, unidades y demás áreas administrativas que actualmente se encuentren en funciones y que modifiquen su configuración orgánica interna con la entrada en vigor del presente decreto, seguirán desarrollando sus funciones y atribuciones, hasta en tanto se emita el Reglamento Interior.
 TERCERO. En el proceso de transición del personal a la Fiscalía General deberá llevarse a cabo conforme a los siguientes lineamientos:
 I. Para el fortalecimiento transicional al Sistema de Justicia Penal Acusatorio y Oral, el Fiscal General en coordinación con el titular del Poder Ejecutivo, ambos a través de sus instancias o dependencias respectivas, acordarán sobre el personal administrativo y de base que aquel necesite para el desempeño de sus funciones, respetándose los derechos laborales adquiridos;
 II. En tanto se instale el Servicio Profesional de Carrera de la Fiscalía General, la profesionalización, el régimen disciplinario, la certificación y el régimen de seguridad social deberán cumplir con el régimen previsto por la Ley General del Sistema Nacional de Seguridad Pública y la particular del Estado.
