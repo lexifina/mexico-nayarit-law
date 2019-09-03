@@ -1,0 +1,4 @@
+P.O. 2 DE SEPTIEMBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY DE PROTECCIÓN A LA FAUNA PARA EL ESTADO DE NAYARIT, EN MATERIA DE MALTRATO ANIMAL".]
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano de Gobierno del Estado de Nayarit.
+ARTÍCULO SEGUNDO.- Dentro de los 60 días naturales posteriores a la entrada en vigor del presente Decreto, las autoridades municipales deberán realizar las adecuaciones normativas necesarias, para que de acuerdo a su disponibilidad presupuestaria, realicen actividades de supervisión sanitaria o bien destinen ésta tarea a personas adiestradas debidamente y equipadas para tal efecto, y así evitar cualquier acto de crueldad, tormento, sobreexcitación o escándalo público en el sacrificio de animales para no consumo humano.
