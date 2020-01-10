@@ -1,5 +1,5 @@
-(ADICIONADO PRIMER PÁRRAFO, P.O. 30 DE SEPTIEMBRE DE 2016) (F. DE E., P.O. 1 DE FEBRERO DE 2017)
-ARTÍCULO 361 BIS.- Se impondrá de treinta a cincuenta años de prisión y multa de quinientos a mil días, a quien cometa el delito de feminicidio.
+(REFORMADO PRIMER PÁRRAFO, P.O. 9 DE ENERO DE 2020)
+ARTÍCULO 361 Bis.- Se impondrán de cuarenta a sesenta años de prisión y multa de quinientos a mil días, a quien cometa el delito de feminicidio.
 (ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2016)
 Comete el delito de feminicidio quien prive de la vida a una mujer por razones de género. Se considera que existen motivos de género, cuando se acredite alguna de las circunstancias siguientes:
 I. La víctima presente signos recientes de violencia sexual de cualquier tipo;
