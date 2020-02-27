@@ -1,0 +1,11 @@
+P.O. 26 DE NOVIEMBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA LA CONSTITUCIÓN DEL ESTADO LIBRE Y SOBERANO DE NAYARIT, EN MATERIA DE INTEGRACIÓN DEL TRIBUNAL ESTATAL ELECTORAL".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit, sin perjuicio de lo dispuesto en los artículos subsecuentes.
+SEGUNDO.- En un plazo que no exceda de ciento ochenta días, posteriores a la entrada en vigor del presente Decreto, el Congreso del Estado deberá realizar las adecuaciones normativas correspondientes al marco jurídico local.
+Se derogan las disposiciones legales, reglamentarias, acuerdos y disposiciones que se opongan al presente Decreto.
+TERCERO.- Se deberán realizar las adecuaciones administrativas, reglamentarias y presupuestales necesarias para garantizar la aplicación de la presente reforma.
+CUARTO.- Para los efectos previstos por el artículo 131 de la Constitución Política del Estado Libre y Soberano de Nayarit, remítase el presente Decreto a los Ayuntamientos de la Entidad.
+QUINTO.- Una vez concluido el proceso de reforma constitucional local, comuníquese el presente Decreto a la Cámara de Senadores del Honorable Congreso de la Unión, para los efectos legales conducentes.
+SEXTO.- La integración de tres Magistrados del Tribunal Estatal Electoral de Nayarit, surtirá sus efectos a partir del 16 de diciembre del 2021.
+(NOTA: EL 1 DE DICIEMBRE DE 2020, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS APARTADOS VII Y VIII, ASÍ COMO EN EL RESOLUTIVO TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 142/2019, DECLARÓ LA INVALIDEZ DE LA PORCIÓN NORMATIVA DEL ARTÍCULO TRANSITORIO SÉPTIMO INDICADA CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS EL 11 DE ENERO DE 2021 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
+SÉPTIMO.- Los Magistrados que actualmente se encuentran en funciones seguirán en el cargo hasta la conclusión del periodo para el que fueron nombrados; A PARTIR DEL 16 DE DICIEMBRE DE 2019 Y HASTA EL 16 DE DICIEMBRE DE 2021, LA INTEGRACIÓN DEL TRIBUNAL ESTATAL ELECTORAL DE NAYARIT SERÁ DE CUATRO MAGISTRADOS.
