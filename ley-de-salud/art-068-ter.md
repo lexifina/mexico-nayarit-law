@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE SEPTIEMBRE DE 2019)
+ARTICULO 68 TER.- Derivado de los trastornos mentales, que presentan los diversos sectores de la sociedad y en virtud de que requieren cada uno de ellos atención especializada, los tipos de atención en salud mental que proporcione la Secretaría buscarán dar prioridad a la niñez, adolescencia, juventud, mujeres en condiciones de embarazo y puerperio, menopausia, adultos mayores, hombres con afecciones mentales y personas que se encuentran en situación de calle, de emergencia o desastre.

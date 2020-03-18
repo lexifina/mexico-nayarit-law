@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE SEPTIEMBRE DE 2019)
+ARTICULO 68 BIS.- El Gobierno, a través de la Secretaría podrá elaborar acciones para la promoción, prevención, diagnóstico oportuno, tratamiento y rehabilitación de las enfermedades mentales, a través de mecanismos de coordinación con el Gobierno Federal, sensibilizar a la sociedad sobre los trastornos mentales y las alternativas para la solución de sus problemas.

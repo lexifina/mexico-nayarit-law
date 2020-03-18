@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 20 DE SEPTIEMBRE DE 2019)
+ARTICULO 70 QUATER.- La atención médica que proporcionen los prestadores de servicio de salud mental deberá incluir la prevención, promoción, protección y procurará restaurar al máximo posible la salud física y mental a través del tratamiento, rehabilitación o referencia a instancias especializadas, así como información de medidas médicas alternativas si el caso lo requiere y cuando sea solicitado.
+La Secretaría establecerá mecanismos gratuitos de asesoría, orientación y atención especializada para los tipos de trastornos mentales y del comportamiento, procurando ofrecer mecanismos remotos de recepción a través de una línea pública de atención telefónica y por medios electrónicos.
