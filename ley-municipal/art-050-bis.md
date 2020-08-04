@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 3 DE AGOSTO DE 2020)
+ARTICULO 50 Bis.- Los Ayuntamientos podrán autorizar la celebración y desahogo de sesiones del cabildo de manera virtual, cuando exista un desastre natural, contingencia ambiental o de salud que las justifique, utilizando las tecnologías de la información y comunicación a distancia, la celebración de dichas sesiones serán válidas cumpliendo quórum legal y sus actos serán válidos reuniendo la votación establecida.
+En tal supuesto, el Secretario del Ayuntamiento deberá asentar en el acta correspondiente los datos necesarios para identificar el motivo que generó la celebración de la sesión de manera virtual y el mecanismo que se utilizó para su realización.
