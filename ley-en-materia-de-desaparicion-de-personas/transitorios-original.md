@@ -1,0 +1,11 @@
+TRANSITORIOS
+PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO. El Consejo Estatal Ciudadano deberá estar conformado dentro de un plazo máximo de noventa días posteriores a la entrada en vigor del presente Decreto.
+En un plazo de treinta días posteriores a su conformación el Consejo Ciudadano deberá emitir sus reglas de funcionamiento.
+TERCERO. El Congreso del Estado deberá legislar en materia de Declaración Especial de Ausencia, dentro de los ciento ochenta días siguientes a la fecha en que entre en vigor la presente Ley.
+CUARTO. Dentro de los noventa días posteriores a la entrada en vigor de la presente Ley, los ayuntamientos deberán hacer las adecuaciones necesarias a sus Reglamentos.
+QUINTO. El Ejecutivo del Estado, en un plazo de noventa días a partir de la entrada en vigor de la presente Ley, deberá expedir o armonizar las disposiciones reglamentarias que correspondan, conforme a lo dispuesto en la presente Ley.
+SEXTO. La Comisión de Búsqueda, dentro de los noventa días siguientes a la entrada en vigor de la presente Ley, deberá emitir el Reglamento Interior y los protocolos rectores para su funcionamiento.
+SÉPTIMO. La partida presupuestaria para la Comisión de Búsqueda, deberá ser incluida a partir del siguiente ejercicio fiscal, mientras tanto, se instruye a la Secretaría de Administración y Finanzas a que realice las acciones necesarias para dotar de recursos materiales, humanos y financieros a la Comisión de Búsqueda, para su adecuado funcionamiento y debido cumplimiento de su objeto, conforme a las disposiciones aplicables. Los recursos financieros que se asignen deberán contemplar la transversalidad en su ejercicio.
+Dip. Heriberto Castañeda Ulloa, Presidente.- Rúbrica.- Dip. Marisol Sánchez Navarro, Secretaria.- Rúbrica.- Dip. Manuel Ramón Salcedo Osuna, Secretario.- Rúbrica.
+Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit en Tepic su capital, a los veintiséis días del mes de agosto de dos mil veinte.- L.C. ANTONIO ECHEVARRÍA GARCÍA.- Rúbrica.- El Secretario General de Gobierno, Lic. José Antonio Serrano Guzmán.- Rúbrica
