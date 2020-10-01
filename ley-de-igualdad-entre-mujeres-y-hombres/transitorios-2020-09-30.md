@@ -1,0 +1,5 @@
+P.O. 30 DE SEPTIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA LA FRACCIÓN I DEL ARTÍCULO 15 DE LA LEY DE IGUALDAD ENTRE MUJERES Y HOMBRES PARA EL ESTADO DE NAYARIT, EN MATERIA DE SALARIO IGUALITARIO".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO.- La observancia del principio de igualdad salarial a que se refiere el presente Decreto, será aplicable a las instituciones del ámbito de la administración pública estatal y municipal, y a empresas públicas y privadas.
+Este principio será aplicable para quienes tomen posesión de su encargo, a partir del proceso electoral local siguiente a la entrada en vigor del presente Decreto, según corresponda, así como a las autoridades que no se renuevan mediante procesos electorales cuya integración y designación se realizará de manera progresiva a partir de las nuevas designaciones y nombramientos que correspondan, de conformidad con la ley.
