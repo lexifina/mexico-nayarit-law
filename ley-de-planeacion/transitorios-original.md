@@ -17,3 +17,4 @@ D A D O en la Sala de Sesiones "Lic. Benito Juárez García" del Honorable Congr
 Dip. Ana Yusara Ramírez Salazar, Presidenta.- Rúbrica.- Dip. Marisol Sánchez Navarro, Secretaria.- Rúbrica.- Dip. Erika Leticia Jiménez Aldaco, Secretaria.- Rúbrica.
 Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit en Tepic su capital, a los veintinueve días del mes de mayo del año dos mil diecinueve.- L.C. ANTONIO ECHEVARRÍA GARCÍA.
 Rúbrica.- El Secretario General de Gobierno, Lic. José Antonio Serrano Guzmán.- Rúbrica.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
