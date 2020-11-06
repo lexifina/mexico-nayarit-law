@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 27 DE JULIO DE 2011)
-ARTICULO 45 A.- Las instituciones educativas establecidas en la entidad deberán brindar las facilidades y condiciones necesarias para llevar a cabo de manera permanente y sistemática las evaluaciones, proporcionando de manera veraz y oportuna, los datos, documentos e información que les requiera la autoridad competente.
+(REFORMADO, P.O. 5 DE NOVIEMBRE DE 2020)
+ARTICULO 45 A.- La evaluación diagnóstica será un proceso para apreciar las capacidades, conocimientos, aptitudes, habilidades, destrezas y actitudes del personal que ejerza la función docente, directiva o de supervisión, para detectar las fortalezas e identificar sus áreas de oportunidad, las cuales serán atendidas a través del Sistema Integral de Formación, Capacitación y Actualización. La evaluación diagnóstica será formativa e integral y atenderá a los contextos locales y regionales de la prestación de los servicios educativos.

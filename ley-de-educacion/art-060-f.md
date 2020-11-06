@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE NOVIEMBRE DE 2020)
+ARTICULO 60 F.- Para llevar a cabo los procesos de construcción, equipamiento, mantenimiento, rehabilitación, reforzamiento, certificación, reconstrucción o habilitación de inmuebles destinados a la prestación del servicio público de educación, se atenderán los lineamientos que establecen las obligaciones que deben cumplirse, que para tal efecto emita la autoridad educativa federal, a través de la instancia que determine.

@@ -1,5 +1,8 @@
-(REFORMADO [N. DE E. ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN], P.O. 20 DE DICIEMBRE DE 2008)
+(DEROGADO TERCER PÁRRAFO, P.O. 5 DE NOVIEMBRE DE 2020)
+(REFORMADA SU DENOMINACIÓN, P.O. 5 DE NOVIEMBRE DE 2020)
 CAPITULO VII
-DE LA CALIDAD DE LA INFRAESTRUCTURA FÍSICA EDUCATIVA
-(REFORMADO, P.O. 3 DE OCTUBRE DE 2012)
-ARTICULO 60 A.- Se entiende por Infraestructura física educativa los muebles e inmuebles destinados a la educación que imparta el Estado y los particulares con autorización o con reconocimiento de validez oficial de estudios en el marco del sistema educativo, incluyendo las instalaciones escolares destinadas a la práctica de actividades relacionadas con la educación física y el deporte, así como los servicios e instalaciones necesarios para su correcta operación.
+DE LOS PLANTELES EDUCATIVOS
+(REFORMADO, P.O. 5 DE NOVIEMBRE DE 2020)
+ARTICULO 60 A.- Los planteles educativos constituyen un espacio fundamental para el proceso de enseñanza aprendizaje, donde se presta el servicio público de educación por parte de las autoridades educativas o por los particulares con autorización o reconocimiento de validez oficial de estudios.
+Con el acuerdo de las autoridades educativas, madres y padres de familia o tutores y la comunidad, en la medida de sus posibilidades, funcionarán como un centro de aprendizaje comunitario, donde además de educar a niñas, niños, adolescentes y jóvenes, se integrará a las familias y a la comunidad para colaborar en grupos de reflexión, de estudio y de información sobre su entorno.
+Para el cumplimiento del presente artículo, se atenderán las disposiciones establecidas por la autoridad educativa federal, en coordinación y en apoyo con las autoridades educativas estatal y municipal.

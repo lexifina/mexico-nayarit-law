@@ -1,0 +1,10 @@
+P.O. 5 DE NOVIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOSICIONES DE LA LEY DE EDUCACIÓN DEL ESTADO DE NAYARIT".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO.- Comuníquese el presente Decreto al titular del Poder Ejecutivo del Estado de Nayarit, para los efectos conducentes.
+TERCERO.- Comuníquese el presente Decreto a los veinte municipios del Estado de Nayarit, para los efectos conducentes.
+CUARTO.- En un plazo que no exceda de 180 días, el Ejecutivo del Estado deberá realizar las adecuaciones reglamentarias correspondientes.
+Con la entrada en vigor del presente decreto, las disposiciones actuales seguirán aplicándose para la operación y funcionamiento de los servicios de educación, siempre y cuando no contravengan lo dispuesto en este Decreto.
+Los trámites y procedimientos iniciados con anterioridad a la entrada en vigor del presente Decreto, concluirán con las normas al momento de su creación.
+QUINTO.- Las erogaciones que se generen con motivo de la entrada en vigor de la presente Ley se realizarán con cargo a la disponibilidad presupuestaria que se apruebe para tal fin al sector educativo del Estado, para el ejercicio fiscal correspondiente, lo cual se llevará a cabo de manera progresiva con el objeto de cumplir con las obligaciones que tendrán a su cargo las autoridades competentes, derivadas de la presente Ley.
+SEXTO.- Las relaciones laborales de los trabajadores al servicio de la educación que, al momento de la entrada en vigor de esta Ley, se rigen por el artículo 123 Constitucional Apartado A o B, según corresponda, se mantendrán en esos términos, de conformidad con lo dispuesto en el Artículo Décimo Sexto Transitorio del Decreto por el que se reforman, adicionan y derogan diversas disposiciones de los artículos 3o., 31 y 73 de la Constitución Política de los Estados Unidos Mexicanos, en materia educativa, publicado el 15 de mayo de 2019 en el Diario Oficial de la Federación.

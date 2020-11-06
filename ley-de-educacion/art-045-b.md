@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 10 DE MARZO DE 2014)
-ARTÍCULO 45 B.- La evaluación del proceso enseñanza-aprendizaje será continúa y periódica conforme a la Ley del Instituto Nacional para la Evaluación de Educación. Su finalidad será la medición de conocimientos, habilidades y aptitudes para la promoción del alumno y el desenvolvimiento de los docentes.
+(REFORMADO, P.O. 5 DE NOVIEMBRE DE 2020)
+ARTÍCULO 45 B.- Con la finalidad de que el personal docente, técnico docente, asesor técnico pedagógico, con funciones de dirección y de supervisión, en la educación básica y media superior que imparta el Estado, reciba formación, capacitación y actualización profesional, la cual tendrá valor curricular, será objeto de una evaluación diagnóstica, a través de la cual se detectarán sus fortalezas y áreas de oportunidad.

@@ -1,0 +1,15 @@
+(ADICIONADO, P.O. 5 DE NOVIEMBRE DE 2020)
+ARTICULO 9o B.- Corresponden a las autoridades de educación media superior y a los organismos descentralizados, respecto de los servicios educativos a su cargo, las siguientes atribuciones:
+I.- Registrar en el Sistema Abierto y Transparente de Asignación de Plazas las vacantes, así como el centro de trabajo respectivo, del personal con funciones docente, técnico docente, de dirección y supervisión, bajo los términos que determine la autoridad educativa federal;
+II.- Instrumentar la oferta de programas de desarrollo profesional;
+III.- Ofrecer, adicionalmente, cursos gratuitos, idóneos, pertinentes y congruentes con los niveles de desempeño que se desea alcanzar, para la formación, capacitación y actualización de conocimientos del personal docente, técnico docente y del personal con funciones de dirección y de supervisión que se encuentren en servicio;
+IV.- Ofrecer al personal docente, técnico docente y al personal con funciones de dirección y de supervisión, programas de desarrollo de capacidades para los procesos de selección;
+V.- Participar en los procesos de selección para la admisión, promoción y reconocimiento en el Sistema, así como en la elaboración de los criterios e indicadores, de conformidad con las disposiciones que determine la Autoridad Educativa Federal;
+VI.- Proponer a la autoridad educativa federal los perfiles profesionales y requisitos que deberán cumplirse para la admisión, promoción y reconocimiento en el Sistema Estatal;
+VII.- Participar con la autoridad educativa federal en la elaboración del calendario anual, conforme al cual se llevarán a cabo los procesos de selección para la admisión, promoción y reconocimiento, a que se refiere esta Ley;
+VIII.- Convocar a los procesos de selección para la admisión, promoción y reconocimiento en el Sistema Estatal, de conformidad con las disposiciones que determine la autoridad educativa federal. Será su responsabilidad notificar oportunamente a los participantes el inicio de los procedimientos y los aspectos que deban cubrir;
+IX.- Asignar las plazas vacantes objeto de la convocatoria, sea para el inicio del ciclo escolar o en el transcurso de éste, respetando los principios de legalidad, transparencia, equidad e imparcialidad, con estricto apego al orden establecido, de mayor a menor, con base en el resultado obtenido por los sustentantes que aprobaron los procesos de selección para la admisión, para asegurar la prestación del servicio público educativo;
+X.- Informar a la autoridad educativa federal, en los plazos que ésta determine, respecto al proceso de asignación de plazas derivados de los procesos de selección para la admisión y promoción;
+XI.- Diseñar y operar programas de reconocimiento para el personal docente, técnico docente, y para el personal con funciones directivas y de supervisión, que se encuentren en servicio;
+XII.- Emitir los criterios bajo los cuales se prestará la función de asesoría técnica pedagógica, y
+XIII.- Las demás que le correspondan conforme a esta Ley y otras disposiciones aplicables.

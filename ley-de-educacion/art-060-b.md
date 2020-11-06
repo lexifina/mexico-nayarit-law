@@ -1,13 +1,3 @@
-(ADICIONADO, P.O. 20 DE DICIEMBRE DE 2008)
-ARTICULO 60 B.- La aplicación y vigilancia del cumplimiento de las disposiciones en materia de infraestructura física educativa corresponde en el ámbito de sus respectivas competencias constitucionales y legales, a las siguientes autoridades:
-(REFORMADA, P.O. 9 DE MARZO DE 2011)
-I.- El titular del Poder Ejecutivo Estatal;
-(REFORMADA, P.O. 10 DE MARZO DE 2014)
-II.- La Secretaría de Educación;
-(REFORMADA, P.O. 10 DE MARZO DE 2014)
-III.- El Instituto Nayarita para la Infraestructura Física Educativa;
-IV.- (DEROGADA, P.O. 10 DE MARZO DE 2014)
-(REFORMADA, P.O. 10 DE MARZO DE 2014)
-V.- La Secretaría de Obras Públicas, y
-VI.- Los Municipios.
-Estas autoridades deberán coordinarse mediante los mecanismos legales correspondientes para el cumplimiento de los objetivos encomendados en la legislación aplicable.
+(REFORMADO, P.O. 5 DE NOVIEMBRE DE 2020)
+ARTICULO 60 B.- Los muebles e inmuebles destinados a la educación impartida por el Estado y los particulares con autorización o con reconocimiento de validez oficial de estudios, así como los servicios e instalaciones necesarios para proporcionar educación, forman parte del Sistema Educativo Estatal, en lo que se refiere a los aspectos pedagógicos y didácticos derivados de los planes y programas de estudio autorizados por las autoridades educativas federales.
+Dichos muebles e inmuebles deberán cumplir con los requisitos de calidad, seguridad, funcionalidad, oportunidad, equidad, sustentabilidad, resiliencia, pertinencia, integralidad, accesibilidad, inclusividad e higiene, incorporando los beneficios del desarrollo de la ciencia y la innovación tecnológica, para proporcionar educación de excelencia, con equidad e inclusión, conforme a los lineamientos que para tal efecto emita la autoridad educativa federal.
