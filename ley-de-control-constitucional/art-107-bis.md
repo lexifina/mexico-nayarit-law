@@ -1,5 +1,5 @@
-(ADICIONADO, P.O. 26 DE NOVIEMBRE DE 2020)
-Artículo 107 bis.- La Sala Constitucional conocerá y resolverá de los recursos de apelación que se interpongan en contra de las resoluciones emitidas por las Salas Especializadas en Materia de Responsabilidades Administrativas del Tribunal de Justicia Administrativa del Estado de Nayarit.
+(ADICIONADO, P.O. 26 DE NOVIEMBRE DE 2020) (F. DE E., P.O. 23 DE DICIEMBRE DE 2020)
+Artículo 107 bis.- La Sala Constitucional conocerá y resolverá de los recursos de apelación que se interpongan en contra de las resoluciones emitidas por las Salas Especializadas en Materia de Responsabilidades Administrativas del Tribunal de Justicia Administrativa de Nayarit.
 Los responsables o los terceros, la Secretaría de la Contraloría General, los Órganos Internos de control de los entes públicos del Estado o la Auditoría Superior del Estado de Nayarit, promoverán el recurso de apelación mediante escrito ante la Sala Especializada del Tribunal de Justicia Administrativa que emitió la resolución, dentro del término de quince días hábiles siguientes a aquél en que surta sus efectos la notificación de la resolución que se recurre.
 El escrito de interposición deberá satisfacer los requisitos previstos por el artículo 25 bis de la presente Ley.
 El recurso será substanciado atendiendo a las siguientes disposiciones:
