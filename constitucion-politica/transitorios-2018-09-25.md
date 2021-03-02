@@ -1,11 +1,10 @@
 P.O. 25 DE SEPTIEMBRE DE 2018.
 [N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA DIVERSAS DISPOSICIONES DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NAYARIT".]
 PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
-SEGUNDO. En un plazo que no exceda de ciento ochenta días naturales posteriores a la publicación de las adecuaciones a las leyes secundarias del artículo 123 de la Constitución Política de los Estados Unidos Mexicanos, en relación con lo establecido en el Decreto publicado en el Diario Oficial de la Federación el 24 de febrero de 2017, por el que se declaran reformadas y adicionadas diversas disposiciones de los artículos 107 y 123 de la Constitución Política de los Estados Unidos Mexicanos, en materia de Justicia Laboral, el Congreso del Estado deberá realizar las modificaciones legales necesarias para armonizar el marco jurídico local con la presente reforma.
+SEGUNDO. (DEROGADO, P.O. 1 DE MARZO DE 2021)
 TERCERO. La presente reforma garantizará y respetará todos los derechos de los trabajadores conforme a la Ley.
-CUARTO. La función conciliatoria estará a cargo del Centro de Conciliación Laboral del Estado de Nayarit. Habrá de integrarse de manera tripartita, es decir, por un Titular que será designado por el Congreso del Estado, el cual deberá contar con conocimientos en materia laboral, mediante una terna propuesta por el Gobernador del Estado; un representante del sector obrero; y un representante del sector patronal.
-Dichos cargos serán determinados mediante el proceso que en su momento se establezca en los ordenamientos legales correspondientes.
-QUINTO. La designación del Titular del Centro de Conciliación Laboral del Estado de Nayarit, deberá realizarse antes del inicio del ejercicio fiscal posterior a la publicación de la presente reforma. Los representantes patronales y de los trabajadores serán designados por el Gobernador de entre las propuestas que surjan de un proceso de consulta a las organizaciones que agrupen a los sectores antes mencionados, posteriormente serán designados de conformidad a lo que establezca la legislación secundaria aplicable.
+CUARTO. (DEROGADO, P.O. 1 DE MARZO DE 2021)
+QUINTO. (DEROGADO, P.O. 1 DE MARZO DE 2021)
 SEXTO. El Centro de Conciliación tendrá su funcionamiento de manera regional, contando con oficinas en tres zonas del Estado.
 SÉPTIMO. El titular del Poder Ejecutivo del Estado garantizará las previsiones presupuestales necesarias que se generen con el presente Decreto.
 OCTAVO. La integración de trece Magistrados Numerarios del Tribunal Superior de Justicia del Poder Judicial del Estado de Nayarit, surtirá sus efectos a partir del 19 de diciembre del 2019.
