@@ -14,7 +14,8 @@ X. Ser tratado y atendido en su comunidad o lo más cerca posible al lugar en do
 XI. A la rehabilitación que le permita la reinserción familiar, laboral y comunitaria;
 XII. A la accesibilidad de familiares u otras personas, en el acompañamiento de las personas usuarias de los servicios de salud mental, salvo que medie contraindicación profesional;
 XIII. A otorgar o no su consentimiento informado;
-XIV. A recibir el medicamento que requiera de acuerdo a su disponibilidad y que el mismo se encuentre dentro del Cuadro Básico de Medicamentos;
+(REFORMADA, P.O. 18 DE MARZO DE 2021)
+XIV. A recibir el medicamento que requiera de acuerdo a su disponibilidad y que el mismo se encuentre dentro del Compendio Nacional de Insumos para la Salud;
 XV. Derecho a acceder y mantener el vínculo con el sistema educativo y el empleo, y no ser excluido por causa de su trastorno mental;
 XVI. A recibir un trato digno y con respeto a sus derechos humanos, por parte de sus familiares y a que estos le proporcionen alimentos y cuidados necesarios para su rehabilitación integral, y
 XVII. A que no se divulgue a terceros por alguno de los medios de comunicación existentes, la atención brindada por el personal de salud mental en las diversas instituciones que presten el servicio, cuando no medie su autorización expresa, salvo disposición contraria en esta y demás ordenamientos aplicables.

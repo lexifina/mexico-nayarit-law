@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 18 DE MARZO DE 2021)
+ARTICULO 31 BIS.- El Gobierno del Estado coadyuvará con las autoridades federales competentes para que se garantice a la población del Estado la disponibilidad y otorgamiento de medicamentos y material de curación según corresponda al nivel de atención de la unidad prestadora de servicio, con base en el Compendio Nacional de Insumos para la Salud elaborado por el Consejo de Salubridad General aplicable al Sector Salud, así como estar incluidos en los catálogos de la institución proveedora del servicio.
