@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE MARZO DE 2021)
+ARTICULO 236 TER.- Las sociedades, asociaciones, colegios o federaciones de especialistas dedicados a la cirugía plástica, estética y reconstructiva, deberán poner a disposición de los Servicios de Salud de Nayarit, un listado que contenga los nombres y datos de los profesionistas que lleven a cabo procedimientos médico-quirúrgicos certificados, referidos en este capítulo, y será (sic) de conocimiento público sus certificados o títulos de especialización vigentes, así como el o los procedimientos médico-quirúrgicos que lleven a cabo.
