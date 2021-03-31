@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 30 DE MARZO DE 2021)
+ARTICULO 60 J.- En caso de emergencia sanitaria declarada por autoridad competente, la Secretaría de Educación, en coordinación con las autoridades sanitarias del estado y de los municipios, se encargará de implementar protocolos preventivos en materia de higiene escolar, que contengan los aspectos mínimos para prevenir el contagio de la emergencia sanitaria declarada.
+La Secretaría de Educación, en coordinación con los Servicios de Salud de Nayarit, mantendrá el control de higiene preventiva escolar y supervisará el cumplimiento de esas medidas al interior de los planteles educativos.
+En caso de que no se cumpla con los protocolos previamente señalados y priorizando la salud del alumnado, el inmueble será cerrado hasta que se cumpla con las disposiciones referidas.

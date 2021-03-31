@@ -3,9 +3,10 @@ ARTICULO 67 BIS.- Las instituciones del Sistema Educativo Estatal, en el ámbito
 I.- Desarrollar sus actividades con estricto apego a los planes y programas de estudio establecidos por la autoridad educativa competente;
 II.- Fomentar la cultura de respeto a la ley, los valores sociales y éticos, la igualdad, la equidad de género, la democracia, la justicia social, así como el respeto a los símbolos patrios;
 III.- Garantizar la integridad física de los alumnos y docentes dentro de los Centros Escolares del Estado, adoptando para el caso los lineamientos y programas de protección civil y de emergencia escolar que establezcan las autoridades en la materia;
-(REFORMADA, P.O. 5 DE NOVIEMBRE DE 2020)
-IV.- En coordinación con las madres y padres de familia y los trabajadores de la educación, atender las recomendaciones, lineamientos, medidas y disposiciones que en materia de higiene, prevención y tratamiento de enfermedades o padecimientos, emita la Secretaría de Salud, a efecto de garantizar el bienestar de los educandos y de los trabajadores de la educación;
-V.- Impulsar la práctica de la actividad física y el deporte de conformidad con los planes y programas de estudio que al efecto se establezcan;
+(REFORMADA, P.O. 30 DE MARZO DE 2021)
+IV.- En coordinación con las madres y padres de familia y los trabajadores de la educación, atender las recomendaciones, lineamientos, protocolos preventivos, medidas y disposiciones que en materia de higiene, prevención y tratamiento de enfermedades o padecimientos, emita la Secretaría de Salud, a efecto de garantizar el bienestar de los educandos y de los trabajadores de la educación;
+(REFORMADA, P.O. 30 DE MARZO DE 2021)
+V.- Impulsar la práctica de la actividad física y el deporte de conformidad con los planes y programas de estudio que al efecto se establezcan; así como, incluir como actividad extraescolar de nivel básico, la técnica deportiva del yoga, como una forma de activación física que ejercita cuerpo y mente, de conformidad con el ámbito competencial establecido en la materia.
 VI.- Desarrollar labores y programas tendientes a evitar la reprobación y la deserción escolar;
 (REFORMADA, P.O. 10 DE MARZO DE 2014)
 VII.- Implementar los lineamientos emitidos por las autoridades educativas locales y federales a efecto de detectar, prevenir y en su caso erradicar las conductas de acoso escolar en las instituciones educativas;
