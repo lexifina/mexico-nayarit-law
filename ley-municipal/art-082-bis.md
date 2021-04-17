@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 16 DE ABRIL DE 2021)
+ARTICULO 82 Bis.- Las comisiones, por conducto de su Presidente, podrán solicitar a las dependencias y entidades del Ayuntamiento, todos los datos y documentos que estimen convenientes para el despacho de los asuntos de su competencia, siempre y cuando se trate de información relativa a la propuesta por dictaminar y se garantice su adecuado tratamiento de conformidad con las normas en materia de transparencia y protección de datos personales.
+En caso de negativa o demora para proporcionar la información a que refiere el párrafo anterior, se comunicará al Presidente Municipal a fin de que por su conducto se ordene lo conducente. En caso de continuar la negativa, se dará vista al órgano interno de control.

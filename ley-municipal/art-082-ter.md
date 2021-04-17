@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE ABRIL DE 2021)
+ARTICULO 82 Ter.- Las comisiones podrán también, para ilustrar su opinión en el despacho de los asuntos que se les encomienden, solicitar se autorice la comparecencia ante ellas de los titulares de las dependencias y entidades municipales. Podrán, asimismo, invitar a dichos funcionarios municipales para obtener mayor información y sustento en sus análisis, si fuere el caso.
