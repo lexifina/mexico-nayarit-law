@@ -1,0 +1,6 @@
+P.O. 30 DE ABRIL DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY DE EDUCACIÓN DEL ESTADO DE NAYARIT, EN MATERIA DE PREVENCIÓN DEL SUICIDIO".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
+SEGUNDO.- La autoridad educativa estatal en colaboración con los Servicios de Salud de Nayarit, en el ámbito de sus posibilidades presupuestales de cada ciclo escolar, desarrollarán los trabajos necesarios para la implementación de protocolos de prevención, detección y actuación ante una conducta suicida, atendiendo las consideraciones necesarias para cada nivel educativo.
+TERCERO.- Una vez publicados los protocolos señalados en el transitorio que antecede, la autoridad educativa estatal en colaboración con los Servicios de Salud de Nayarit, capacitarán a las personas involucradas en la implementación de los mismos, considerando como parte de la capacitación, el respeto a los derechos humanos, a los derechos de niñas, niños y adolescentes y la protección de datos personales, en atención a las disposiciones legales aplicables.
+CUARTO.- Comuníquese el presente Decreto a la Secretaría de Educación del Estado, para los efectos legales conducentes.
