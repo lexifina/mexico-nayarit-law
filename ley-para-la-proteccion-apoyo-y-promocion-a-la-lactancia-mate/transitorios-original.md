@@ -1,0 +1,8 @@
+TRANSITORIOS
+PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO. El Ejecutivo del Estado deberá expedir el Reglamento de la Ley para la Protección, Apoyo y Promoción a la Lactancia Materna del Estado de Nayarit, dentro de los 180 días contados a partir de la entrada en vigor de la presente Ley.
+TERCERO. La Secretaría de Salud del Estado promoverá que las instituciones públicas y privadas que presten servicios de salud destinados a la atención materno infantil, tengan la posibilidad de obtener el certificado "Hospital Amigo del Niño y de la Niña".
+CUARTO. El Ejecutivo del Estado, procurará crear, de conformidad con la disponibilidad presupuestal, los Bancos de Leche y la Coordinación Estatal de Lactancia Materna y Bancos de Leche, a más tardar el primero de enero del año 2023.
+Dado en Sesión Pública Virtual del Recinto Oficial de este Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los catorce días del mes de mayo del año dos mil veintiuno.
+Dip. Karla Gabriela Flores Parra, Presidenta.- Rúbrica.- Dip. Claudia Cruz Dionisio, Secretaria.- Rúbrica.- Dip. Elizabeth Rivera Marmolejo, Secretaria.- Rúbrica.
+Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit en Tepic su capital, a los dos días del mes de junio de dos mil veintiuno.- L.C. ANTONIO ECHEVARRÍA GARCÍA.- Rúbrica.- El Secretario General de Gobierno, Lic. José Antonio Serrano Guzmán.- Rúbrica.
