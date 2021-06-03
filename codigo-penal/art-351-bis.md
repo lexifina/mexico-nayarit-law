@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE JUNIO DE 2021)
+ARTÍCULO 351 BIS.- Cuando las lesiones se infieran con crueldad o frecuencia a un menor de edad o a un incapaz, sujetos a la patria potestad, tutela, custodia del agente o a una persona mayor de sesenta años, la pena se incrementará hasta dos terceras partes de la correspondiente al máximo de la sanción prevista, de conformidad con el Capítulo I del presente Título.
