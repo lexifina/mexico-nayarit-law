@@ -1,13 +1,8 @@
-LEY DE HACIENDA PARA LOS MUNICIPIOS DEL ESTADO DE HIDALGO
-Ley publicada en el Alcance al Periódico Oficial del Estado de Hidalgo, el lunes 21 de noviembre de 2011.
-JOSÉ FRANCISCO OLVERA RUIZ, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE HIDALGO, A SUS HABITANTES SABED:
-QUE LA LXI LEGISLATURA DEL H. CONGRESO CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE HIDALGO, HA TENIDO A BIEN DIRIGIRME EL SIGUIENTE:
-D E C R E T O NÚM. 28
-QUE CONTIENE LA LEY DE HACIENDA PARA LOS MUNICIPIOS DEL ESTADO DE HIDALGO.
-El Congreso del Estado Libre y Soberano de Hidalgo, en uso de las facultades que le confiere el Artículo 56 fracciones I y II de la Constitución Política de los Estados Unidos Mexicanos,
-D E C R E T A:
-A N T E C E D E N T E S.
-POR TODO LO EXPUESTO, ESTE CONGRESO, HA TENIDO A BIEN EXPEDIR EL SIGUIENTE:
-D E C R E T O
-QUE CONTIENE LA LEY DE HACIENDA PARA LOS MUNICIPIOS DEL ESTADO DE HIDALGO.
-LEY DE HACIENDA PARA LOS MUNICIPIOS DEL ESTADO DE HIDALGO.
+LEY DE CULTURA Y JUSTICIA CÍVICA PARA EL ESTADO DE NAYARIT
+Ley publicada en la Sección Sexta al Número 109 del Periódico Oficial del Estado de Nayarit, el miércoles 5 de junio de 2019.
+Al margen un Sello con el Escudo Nacional que dice: Estados Unidos Mexicanos.- Poder Legislativo.- Nayarit.
+"Año 2019, Centenario de la Inmortalidad del Bardo Nayarita y Poeta Universal Amado Nervo" L.C. ANTONIO ECHEVARRÍA GARCÍA, Gobernador Constitucional del Estado Libre y Soberano de Nayarit, a los habitantes del mismo, sabed:
+Que el H. Congreso Local, se ha servido dirigirme para su promulgación, el siguiente:
+DECRETO
+El Congreso del Estado Libre y Soberano de Nayarit representado por su XXXII Legislatura, decreta:
+LEY DE CULTURA Y JUSTICIA CÍVICA PARA EL ESTADO DE NAYARIT
