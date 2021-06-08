@@ -1,0 +1,10 @@
+TRANSITORIOS
+PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO. A partir del inicio de vigencia de la Ley, la Secretaría de Bienestar e Igualdad Sustantiva deberá:
+I. Conformar el Consejo y emitir su Estatuto Interno, dentro de los sesenta días hábiles posteriores a la entrada en vigor de la Ley, a efecto de que éste expida la convocatoria para la integración del Grupo Técnico Consultivo, el que deberá instalarse a más tardar treinta días hábiles posteriores a la integración del Consejo;
+II. Emitir los lineamientos para la administración del Registro, dentro de noventa días hábiles posteriores a su conformación; una vez emitidos los lineamientos, el Registro deberá iniciar su operación dentro de treinta días hábiles posteriores. La Secretaría de Bienestar e Igualdad Sustantiva dará una amplia difusión de la Ley con énfasis en el Registro y en las obligaciones de las Organizaciones, y
+III. Proponer al Ejecutivo del Estado, el Reglamento de la Ley, en un término de 120 días hábiles posteriores a la entrada en vigor de la Ley.
+TERCERO. Por única ocasión, para la instalación e integración del Grupo Técnico Consultivo, para los representantes de las Organizaciones se preverá un periodo de nombramiento por uno y dos años a fin de garantizar el escalonamiento.
+DADO en Sesión Pública Virtual del Recinto Oficial de este Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los catorce días del mes de mayo del año dos mil veintiuno.
+Dip. Karla Gabriela Flores Parra, Presidenta.- Rúbrica.- Dip. Claudia Cruz Dionisio, Secretaria.- Rúbrica.- Dip. Elizabeth Rivera Marmolejo, Secretaria.- Rúbrica.
+Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit en Tepic su capital, a los siete días del mes de junio de dos mil veintiuno.- L.C. ANTONIO ECHEVARRÍA GARCÍA.- Rúbrica.- El Secretario General de Gobierno, Lic. José Antonio Serrano Guzmán.- Rúbrica.
