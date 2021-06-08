@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 7 DE JUNIO DE 2021)
+Artículo 36 Bis.- La autoridad competente expedirá gratuitamente la primera copia certificada del acta de registro de nacimiento.
+Las copias certificadas de las actas de nacimiento expedidas por el Oficial del Registro Civil no tendrán caducidad, por lo que se podrán utilizar en la realización de trámites ante cualquier ente público o privado, siempre que se encuentren legibles y no presenten tachaduras, enmendaduras o cualquier aspecto que altere su contenido, o sobrevenga un cambio de nombre, de estado familiar, u otro que afecte los datos inscritos en ese documento.

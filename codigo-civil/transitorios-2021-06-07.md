@@ -1,0 +1,8 @@
+P.O. 7 DE JUNIO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES AL CÓDIGO CIVIL PARA EL ESTADO DE NAYARIT, EN MATERIA DE PATRIMONIO FAMILIAR, REGISTRO DE DEUDORES ALIMENTARIOS, CASO FORTUITO Y EXPEDICIÓN DE ACTA DE NACIMIENTO".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO.- Las erogaciones que se generen con motivo de la entrada en vigor del presente Decreto, deberán cubrirse con cargo al presupuesto aprobado para el ejercicio fiscal 2021 y sus subsecuentes, de la Dirección Estatal de (sic) Registro Civil del Estado de Nayarit, por lo que no requerirán de recursos adicionales para su cumplimiento.
+TERCERO.- El Titular del Poder Ejecutivo del Estado de Nayarit, tendrá un plazo de 90 días hábiles, a partir de la entrada en vigor del presente Decreto, para que se realicen las adecuaciones necesarias al Reglamento del Registro Civil.
+CUARTO.- La Dirección Estatal de (sic) Registro Civil del Estado de Nayarit, tendrá un plazo 90 días hábiles a partir de la entrada en vigor del presente Decreto para crear y operar el Registro de Deudores Alimentarios Morosos del Estado de Nayarit.
+Una vez que entre en funciones deberá dar trámite inmediato a las resoluciones judiciales que se hubieren efectuado durante el periodo existente entre la entrada en vigor de este Decreto y la creación del Registro de Deudores Alimentarios Morosos del Estado de Nayarit.
+QUINTO.- Comuníquese a la Dirección de (sic) Registro Civil de los Ayuntamientos de la Entidad, para los efectos conducentes.
