@@ -1,0 +1,6 @@
+P.O. 18 DE JUNIO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NAYARIT, EN MATERIA DE FALTAS ABSOLUTAS DEL EJECUTIVO, SUPLENCIAS DEL CONSEJO DE LA JUDICATURA, SESIONES VIRTUALES DEL CONGRESO Y FACULTADES DEL CONGRESO; Y RELATIVAS A LA AUDITORÍA SUPERIOR DEL ESTADO DE NAYARIT".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO.- Comuníquese el presente Decreto, al titular del Poder Ejecutivo del Estado de Nayarit, al Magistrado Presidente del Poder Judicial del Estado de Nayarit, así como a la Auditoría Superior del Estado de Nayarit, para los efectos conducentes.
+TERCERO.- De conformidad a lo dispuesto por el artículo 85 numeral 5 objeto de la presente reforma, el Congreso del Estado procederá a designar a la persona suplente, para efectos de cubrir en su caso las ausencias que se presentaren, sin que la ocupación de la persona suplente pueda exceder el tiempo de nombramiento de la persona titular.
+CUARTO.- Remítase el presente Decreto a los Ayuntamientos del Estado de Nayarit, para los efectos previstos por el artículo 131 de la Constitución Política del Estado Libre y Soberano de Nayarit.
