@@ -28,7 +28,8 @@ XII. Coordinar el registro estatal de personal, armamento y equipo de todos los 
 XIII. Proponer al Ejecutivo el nombramiento del Director de la Policía Estatal Preventiva;
 XIV. (DEROGADA, P.O. 18 DE MAYO DE 2018)
 XV. (DEROGADA, P.O. 18 DE MAYO DE 2018)
-XVI. (DEROGADA, P.O. 18 DE MAYO DE 2018)
+(REFORMADA [N. DE E. ADICIONADA], P.O. 7 DE JUNIO DE 2021)
+XVI. Integrar, equipar y operar brigadas de vigilancia animal para responder a las necesidades de protección y rescate de animales en situación de riesgo, estableciendo una coordinación interinstitucional para implantar operativos en esta materia y coadyuvar con asociaciones civiles en la protección y canalización de animales a centros de atención, refugios y albergues de animales. Así como tomar las acciones conducentes para prevenir o inhibir la comisión de delitos contra animales domésticos o silvestres, considerando la flagrancia y las facultades dispuestas en la legislación de protección de la fauna en el Estado de Nayarit;
 (ADICIONADA, P.O. 18 DE DICIEMBRE DE 2009)
 XVII. Salvaguardar la integridad y el patrimonio de las personas, prevenir la comisión de delitos del orden, así como preservar la libertad, el orden y la paz públicos;
 (ADICIONADA, P.O. 18 DE DICIEMBRE DE 2009)
