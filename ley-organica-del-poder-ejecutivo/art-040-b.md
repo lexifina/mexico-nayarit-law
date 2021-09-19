@@ -59,11 +59,19 @@ XXIX. Elaborar, ejecutar y vigilar el cumplimiento de las políticas referentes 
 XXX. Acordar y tramitar, las solicitudes de extradición, amnistía, indultos, libertad anticipada y traslado de reos, de conformidad con las leyes y convenios respectivos; además, acordar todo lo relativo a la libertad condicional, libertad preparatoria, condena condicional, libertad preliberacional y beneficios, exhortos y las demás atribuciones que en este ramo especifican el Código Penal del Estado y el de Procedimientos en la misma materia;
 (ADICIONADA, P.O. 18 DE DICIEMBRE DE 2009)
 XXXI. Vigilar el establecimiento de instituciones y la aplicación de las medidas preventivas y definitivas impuestas a los adolescentes en conflicto con la ley penal, fijadas por la autoridad jurisdiccional competente;
-(REFORMADA, P.O. 29 DE MAYO DE 2019)
-XXXII. Administrar los Centros de Readaptación y Reintegración Social;
+(F. DE E., P.O. 28 DE JUNIO DE 2019)
+XXXII. Administrar los Centros de Reinserción y Reintegración Social;
 (REFORMADA [N. DE E. ADICIONADA], P.O. 29 DE MAYO DE 2019)
 XXXIII. Presentar al Gobernador del Estado, para su aprobación, el Programa Estatal de Protección Civil y prestar toda clase de ayuda y apoyos a los órganos encargados de ejecutar los Programas Nacional y Estatal de Auxilio en caso de desastres;
-(ADICIONADA, P.O. 29 DE MAYO DE 2019)
-XXXIV. Conducir y poner en ejecución, en coordinación con las autoridades de los gobiernos municipales y con las dependencias y entidades de la Administración Pública estatal, las políticas y programas de protección civil del Ejecutivo, en el marco del Sistema Estatal de Protección Civil, para la prevención, auxilio, recuperación y apoyo a la población en situaciones de desastre y concertar con instituciones y organismos de los sectores privado y social las acciones conducentes al mismo objetivo, y
-(ADICIONADA [N. DE E. REFORMADA Y REUBICADA], P.O. 29 DE MAYO DE 2019)
-XXXV. Las demás que le atribuyan expresamente las leyes, reglamentos, convenios y las que le confiera el Gobernador.
+(F. DE E., P.O. 28 DE JUNIO DE 2019)
+XXXIV. Conducir y poner en ejecución, en coordinación con las autoridades de los gobiernos municipales y con las dependencias y entidades de la Administración Pública estatal, las políticas y programas de protección civil del Ejecutivo, en el marco del Sistema Estatal de Protección Civil, para la prevención, auxilio, recuperación y apoyo a la población en situaciones de desastre y concertar con instituciones y organismos de los sectores privado y social las acciones conducentes al mismo objetivo;
+(F. DE E., P.O. 28 DE JUNIO DE 2019)
+XXXV. Llevar a cabo el registro y control de vehículos que estén dados de alta en el Estado y coadyuvar en la actualización del Registro Público Vehicular;
+(F. DE E., P.O. 28 DE JUNIO DE 2019)
+XXXVI. Organizar y supervisar las corporaciones de tránsito del Estado, en los términos de la Constitución Política de los Estados Unidos Mexicanos, la particular del Estado, las leyes y los convenios respectivos;
+(F. DE E., P.O. 28 DE JUNIO DE 2019)
+XXXVII. Administrar y vigilar el tránsito en las carreteras y caminos de jurisdicción estatal, y aplicar, en su caso, las sanciones que correspondan en los términos que señalen las leyes, reglamentos y convenios respectivos;
+(F. DE E., P.O. 28 DE JUNIO DE 2019)
+XXXVIII. Supervisar y controlar el tránsito vehicular y peatonal, conforme lo disponga la ley y los convenios respectivos, y
+(F. DE E., P.O. 28 DE JUNIO DE 2019)
+XXXIX. Las demás que le atribuyan expresamente las leyes, reglamentos, convenios y las que le confiera el Gobernador.
