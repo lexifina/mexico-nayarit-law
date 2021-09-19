@@ -18,8 +18,7 @@ VII. Coordinar las acciones que incidan en el bienestar de la población, el com
 VIII. Fomentar las actividades de las organizaciones de la sociedad civil en materia de bienestar, combate a pobreza y desarrollo humano;
 (REFORMADA, P.O. 29 DE MAYO DE 2019)
 IX. Coordinar, concretar y ejecutar programas especiales para la atención de los sectores sociales más desprotegidos, a fin de elevar el nivel de vida de la población, con la intervención del gobierno federal y municipal, y con la participación de los sectores social y privado;
-(ADICIONADA, P.O. 29 DE MAYO DE 2019)
-X. Coadyuvar en las políticas públicas que garanticen el pleno ejercicio de los derechos y el desarrollo de los pueblos indígenas;
+X. (DEROGADA, P.O. 18 DE ENERO DE 2021)
 (ADICIONADA, P.O. 29 DE MAYO DE 2019)
 XI. Participar en la coordinación e instrumentación de las políticas de desarrollo rural para elevar el nivel de bienestar de las familias, comunidades y ejidos;
 (ADICIONADA, P.O. 29 DE MAYO DE 2019)
@@ -34,22 +33,17 @@ XV. Promover y ejecutar acciones tendientes a propiciar la igualdad sustantiva e
 XVI. Generar políticas y programas para la atención de personas con índices de mayor marginalidad en el Estado;
 (ADICIONADA, P.O. 29 DE MAYO DE 2019)
 XVII. Instrumentar y dar seguimiento a los programas de inclusión social y protección de los derechos de niñas, niños y adolescentes;
-(ADICIONADA, P.O. 29 DE MAYO DE 2019)
-XVIII. Elaborar políticas públicas y dar seguimiento a los programas de apoyo e inclusión de los jóvenes a la vida social, participativa y productiva;
-(ADICIONADA, P.O. 29 DE MAYO DE 2019)
-XIX. Promover acuerdos y convenios de colaboración y coordinación con la Secretaría de Desarrollo Sustentable, el Instituto Mexicano de la Juventud, autoridades federales, estatales y municipales para el desarrollo social y de la juventud;
-(ADICIONADA, P.O. 29 DE MAYO DE 2019)
-XX. Diseñar, promover y ejecutar la política estatal de atención a la juventud, promoviendo la adopción de políticas en materia de educación sexual, prevención de enfermedades, oportunidades de empleo, expresión cultural y artística, así como combate a las adicciones y prevención de la delincuencia;
+XVIII. (DEROGADA, P.O. 18 DE ENERO DE 2021)
+XIX. (DEROGADA, P.O. 18 DE ENERO DE 2021)
+XX. (DEROGADA, P.O. 18 DE ENERO DE 2021)
 (ADICIONADA, P.O. 29 DE MAYO DE 2019)
 XXI. Impulsar las políticas públicas y dar seguimiento a los programas de inclusión y atención de los adultos mayores y sus derechos;
 (ADICIONADA, P.O. 29 DE MAYO DE 2019)
 XXII. Formular y conducir la política de fomento y desarrollo del sector social de la economía;
 (ADICIONADA, P.O. 29 DE MAYO DE 2019)
 XXIII. Impulsar la igualdad de oportunidades de los grupos sociales vulnerables, para el acceso a los servicios de salud, educación, trabajo, vivienda digna y a los servicios públicos básicos;
-(ADICIONADA, P.O. 29 DE MAYO DE 2019)
-XXIV. Impulsar políticas públicas y programas para la atención y protección de los migrantes;
-(ADICIONADA, P.O. 29 DE MAYO DE 2019)
-XXV. Coadyuvar en la promoción de los derechos de los migrantes;
+XXIV. (DEROGADA, P.O. 18 DE ENERO DE 2021)
+XXV. (DEROGADA, P.O. 18 DE ENERO DE 2021)
 (ADICIONADA, P.O. 29 DE MAYO DE 2019)
 XXVI. Integrar, mantener y actualizar un sistema de información con los padrones de beneficiarios de programas sociales de la Entidad, así como evitar duplicidades, y
 (ADICIONADA, P.O. 29 DE MAYO DE 2019)
