@@ -1,0 +1,10 @@
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 1 DE DICIEMBRE DE 2021)
+SECCIÓN QUINTA
+UNIDAD PARA LA IGUALDAD DE GÉNERO
+(ADICIONADO, P.O. 1 DE DICIEMBRE DE 2021)
+Artículo 83 Bis.- El Congreso contará con una Unidad para la Igualdad de Género, la cual tendrá como objeto garantizar de manera efectiva el derecho fundamental a la igualdad entre mujeres y hombres, encargada de diseñar e implementar las estrategias para la transversalización de la perspectiva de género y una política protectora de derechos humanos e igualdad sustantiva, a través del fomento, promoción y generación de acciones y políticas públicas, dentro de su marco competencial.
+La Unidad para la Igualdad de Género funcionará como comité, procurando la paridad de género en su conformación, y estará integrada por la persona que ejerza la presidencia o titularidad de la Comisión de Gobierno, de la Comisión Legislativa de Igualdad de Género y Familia, de la Secretaría General, de la Oficialía Mayor y de la Contraloría Interna.
+Las o los titulares señalados en el párrafo anterior, podrán designar a quien pueda fungir como su representante, así como, sustituirlo de manera libre.
+Las y los servidores públicos que integren este comité preferentemente contarán con experiencia en materia de género o derechos humanos y no podrá conformarse por quienes ocupen niveles inferiores a jefaturas de departamentos o su equivalente. En caso de que la persona designada no cuente con experiencia en materia de género o derechos humanos deberá capacitarse de manera inmediata.
+Una vez integrado el órgano colegiado denominado Unidad para la Igualdad de Género, deberán elegir entre sus integrantes a la persona que ejerza la presidencia, otra que lleve a cabo las funciones de la secretaría, y los demás integrantes tendrán el carácter de vocales; cargos que serán designados por decisión de la mayoría de las y los integrantes del órgano.
+En las sesiones del comité, las y los servidores públicos que lo conformen, tendrán derecho a voz y voto, y desempeñarán su función de manera honorífica, por lo que no recibirán percepción económica adicional por su participación.
