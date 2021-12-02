@@ -1,0 +1,3 @@
+P.O. 1 DE DICIEMBRE DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO QUE REFORMA LA FRACCIÓN I DEL ARTÍCULO 94 DE LA LEY ORGÁNICA DEL PODER LEGISLATIVO DEL ESTADO DE NAYARIT, EN MATERIA DE INCORPORACIÓN DE LA PERSPECTIVA DE GÉNERO EN EL TRABAJO LEGISLATIVO".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
