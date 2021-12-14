@@ -1,0 +1,6 @@
+TRANSITORIOS
+PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO. Para la determinación de la Remuneración Anual Máxima aplicable para el ejercicio fiscal de 2022 conforme a lo previsto en el artículo 12 de esta Ley, se tomará como base la aprobada para el Presupuesto de Egresos del Estado Libre y Soberano de Nayarit para el Ejercicio Fiscal 2021.
+DADO en la Sala de Sesiones "Lic. Benito Juárez García" Recinto Oficial de este Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los dos días del mes de diciembre del año dos mil veintiuno.
+Dip. Alba Cristal Espinoza Peña, Presidenta.- Rúbrica.- Dip. Alejandro Regalado Curiel, Secretario.- Rúbrica.- Dip. Juana Nataly Tizcareño Lara, Secretaria.- Rúbrica..
+Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado, y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los trece días del mes de diciembre de dos mil veintiuno.- DR. MIGUEL ÁNGEL NAVARRO QUINTERO, Gobernador Constitucional del Estado.- Rúbrica.- Lic. Juan Antonio Echeagaray Becerra, Secretario General de Gobierno.- Rúbrica.
