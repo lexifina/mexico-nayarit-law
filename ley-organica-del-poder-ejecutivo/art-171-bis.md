@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 14 DE AGOSTO DE 2014)
+ARTICULO 171 BIS. Los ayuntamientos y los organismos operadores establecerán anualmente estímulos fiscales en beneficio de las personas con discapacidad, así como de las personas adultas mayores, de los que disfrutarán; según corresponda, y hasta por el cincuenta por ciento de los derechos causados.
+Para el acceso a los estímulos fiscales a que se refiere este artículo, los contribuyentes deberán acreditar su condición de acuerdo al mecanismo que establezca el ayuntamiento u organismo operador, siempre que se cuente con medidor y no se tengan adeudos.
+La deducción que resulte de la aplicación del estímulo fiscal en relación con el valor total de los derechos generados por la prestación del servicio público, se indicará en los recibos de pago en forma separada a la cantidad total a pagar por los usuarios.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE OCTUBRE DE 2014)
+ARTICULO 159 BIS. En caso de que las solicitudes de factibilidad no excedan de nueve tomas por inmueble, el desarrollador deberá celebrar contrato de prestación de servicios ante el ayuntamiento u organismo operador, que equivale a la carta de factibilidad, para cuyo caso le aplicarán las cuotas y tarifas vigentes para la incorporación de nuevos fraccionamientos o desarrollos urbanos, debiendo cumplir con los requisitos que al efecto se le fijen por los ordenamientos correspondientes para la contratación.

@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 20 DE OCTUBRE DE 2011)
+ARTICULO 104 BIS. Los representantes de los usuarios comerciales e industriales del Consejo Consultivo, deberán pertenecer a instituciones, asociaciones, cámaras, colegios de profesionistas u organizaciones sólidas, debidamente acreditadas, y tener conocimientos en materia de agua o temas relacionados estrechamente con ésta; en tanto que los representantes de los usuarios domésticos deberán ser personas comprometidas en atender la problemática del uso del agua y su conservación, buscando preferentemente un perfil adecuado al tema hídrico. Para la constitución del Consejo Consultivo, el ayuntamiento que se trate, emitirá la convocatoria pública dirigida a todas las personas usuarias del servicio doméstico, comercial y de servicios, e industrial, con los siguientes requisitos, en su caso:
+I. Contar con la nacionalidad mexicana y mayoría de edad;
+II. Ser residente del municipio en que se emita la convocatoria;
+III. En caso de pertenecer a alguna asociación de profesionales, debidamente constituidas de acuerdo con las leyes mexicanas presentar su acreditación, y
+IV. En el caso de personas físicas, deberán ser personas comprometidas en atender la problemática del uso del agua y su conservación, capaces de hacer aportaciones al sector.
+El Consejo Consultivo se integrará de la siguiente manera: con hasta 5 miembros en los organismos operadores que tengan instaladas hasta 999 tomas; hasta 8 miembros en los que tengan instaladas de 1,000 a 29,999 tomas; y hasta 10 en los que cuenten con 30,000 o más tomas instaladas.
+Cada miembro propietario contará con su respectivo suplente.

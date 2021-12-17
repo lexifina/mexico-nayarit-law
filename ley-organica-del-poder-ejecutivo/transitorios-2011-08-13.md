@@ -1,8 +1,0 @@
-P.O. 13 DE AGOSTO DE 2011.
-Primero.- El presente Decreto para los efectos de la Secretaría de Cultura, entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit; con relación a la Secretaría de Administración y Finanzas, cobrará vigencia a partir del 19 de septiembre de 2011.
-Segundo.- Se abroga el decreto número 8355 que crea el Consejo Estatal para la Cultura y las Artes de Nayarit publicado el 31 de octubre de 2001 y su reforma publicada el 25 de mayo de 2011 en el Periódico Oficial, Órgano de Gobierno del Estado de Nayarit.
-Tercero.- A la entrada en vigor del presente decreto, se iniciará el traspaso de los recursos humanos, materiales, técnicos y financieros, de conformidad con el acuerdo de transferencia que al efecto disponga el Titular del Poder Ejecutivo.
-Cuarto.- En la transferencia de los recursos humanos se deberán respetar los derechos laborales de los trabajadores.
-Quinto.- Dentro del plazo (sic) tres meses contados a partir de la entrada en vigor del presente decreto, se deberán realizar los cambios conducentes al Presupuesto de Egresos, de conformidad al Programa de Transferencia de Recursos a que se refiere el artículo anterior.
-Sexto.- En razón de la redistribución de competencias, cuando la ley haga referencia a alguna atribución conferida a alguna de las secretarías que han sido modificadas en su denominación, se entenderá que estas deben ser ejercidas por cada una de las Secretarías creadas en el presente Decreto, atendiendo a la naturaleza y ramo de que se trate.
-Séptimo.- En un plazo que no exceda de 90 días a partir de la entrada en vigor del presente Decreto, se deberán de realizar las adecuaciones legales conducentes.
