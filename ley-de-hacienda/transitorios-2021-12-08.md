@@ -1,6 +1,7 @@
 P.O. 8 DE DICIEMBRE DE 2021.
 [N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA, ADICIONA Y DEROGA DIVERSOS ARTÍCULOS DE LA LEY DE HACIENDA DEL ESTADO DE NAYARIT".]
-PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
+(F. DE E., P.O. 10 DE DICIEMBRE DE 2021)
+PRIMERO.- El presente Decreto entrará en vigor el día primero de enero de 2022, previa su publicación en el Periódico Oficial, Órgano del Gobierno del Estado.
 SEGUNDO.- Se modifica de 100 a 50 por ciento la aportación otorgada al Fideicomiso de Promoción Turística del Estado de Nayarit, señalada en la Cláusula Segunda punto 1 del Contrato de Fideicomiso de fecha 30 de Abril de 1997, constituido en virtud del Decreto número 8002, emitido por el H. Congreso del Estado Libre y Soberano de Nayarit, publicado en el Periódico Oficial Órgano del Gobierno del Estado con fecha 14 de Diciembre de 1996, el cual contiene reformas, adiciones y modificaciones a diversas disposiciones de la Ley de Hacienda del Estado de Nayarit, entre las que se encuentra la creación del Impuesto al Hospedaje y la obligación de constituir un Fideicomiso para el Fomento al Turismo del Estado.
 El 50 por ciento descontado conforme al párrafo anterior, será destinado para pago de deuda del Gobierno del Estado.
 Los ingresos excedentes a lo presupuestado en la Ley de Ingresos del Estado Libre y Soberano de Nayarit, para el Ejercicio Fiscal 2022, así como los obtenidos a través de plataformas digitales, en el rubro del Impuesto sobre Hospedaje que el Estado obtenga por los esfuerzos recaudatorios realizados en el mismo ejercicio fiscal, no formarán parte del porcentaje otorgado al fideicomiso.
