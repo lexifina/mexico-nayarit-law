@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE DICIEMBRE DE 2021)
+Artículo 111 Quater.- Para establecer el número de cajones de estacionamiento requeridos por el inmueble y el factor de uso de suelo a que se refiere el artículo 111 ter, se ubicará el rango que corresponda de acuerdo al uso general del suelo, el uso específico del suelo y la zona en que se localice el inmueble, conforme a lo establecido en las reglas de carácter general.

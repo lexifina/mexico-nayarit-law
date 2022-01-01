@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE DICIEMBRE DE 2021)
+Artículo 111 Decies.- El ingreso que se perciba por este concepto, será destinado para el desarrollo de obras de infraestructura vial que tienda a mitigar el impacto vial en la zona de influencia. El proyecto de obra y su ejecución se dará de manera coordinada, entre las Secretarías de Desarrollo Sustentable, Infraestructura, Movilidad y el municipio o municipios afectados, conforme lo dispuesto en las reglas generales.
