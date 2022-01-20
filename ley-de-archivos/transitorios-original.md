@@ -4,7 +4,7 @@ SEGUNDO. Se abrogan la Ley de Archivos del Estado de Nayarit y su reglamento, pu
 TERCERO. Los sujetos obligados emitirán las disposiciones reglamentarias que en su caso correspondan, en un lapso no mayor a 180 días posteriores a la entrada en vigor de la presente Ley, las cuales deberán sujetarse a lo establecido en la Ley General, en esta
 Ley, en los lineamientos emitidos por el Consejo Nacional.
 CUARTO. Los sujetos obligados aprobarán las disposiciones normativas internas y adoptarán las medidas financieras y presupuestales, de infraestructura y de recursos humanos para el funcionamiento del Sistema Institucional de Archivos.
-QUINTO. El Consejo Local, se integrará y deberá empezar a sesionar dentro de los seis meses posteriores a la entrada en vigor de la presente Ley.
+QUINTO. (DEROGADO, P.O. 19 DE ENERO DE 2022)
 SEXTO. Aquellos documentos que se encuentren en los archivos de trámite o de concentración y que antes de la entrada en vigor de la presente Ley no han sido organizados y valorados, se les deberá aplicar los procesos técnicos archivísticos previstos en la presente Ley, con el objetivo de identificar el contenido y carácter de la información y determinar su disposición documental.
 Los avances de estos trabajos deberán ser publicados al final de cada año en el portal electrónico del sujeto obligado.
 SÉPTIMO. Los documentos transferidos al Archivo General del Estado de Nayarit, antes de la entrada en vigor de la presente Ley, permanecerán en dicho archivo y deberán ser identificados, ordenados, descritos y clasificados archivísticamente, con el objetivo de identificar el contenido y carácter de la información, así como para promover el uso y difusión favoreciendo la divulgación e investigación.
@@ -12,9 +12,10 @@ Aquellos sujetos obligados que cuenten con archivos históricos, deberán prever
 Los avances de estos trabajos deberán ser publicados al final de cada año mediante el portal electrónico del sujeto obligado.
 OCTAVO. En un plazo de un año, contado a partir de la entrada en vigor de la presente Ley, los sujetos obligados deberán implementar programas de capacitación en materia de gestión documental y administración de archivos; en coordinación con el Instituto de Transparencia y Acceso a la Información Pública del Estado de Nayarit, y el Archivo General del Estado de Nayarit.
 En el caso de los Sujetos Obligados del Poder Ejecutivo, el programa de capacitación en materia de gestión documental y administración de archivos a que hace referencia el párrafo anterior, estará a cargo del Archivo General del Estado de Nayarit, quien podrá coordinarse para tal efecto, con el órgano garante local.
-NOVENO. La Secretaría General de Gobierno, con cargo a su presupuesto, proveerá los recursos humanos, materiales, tecnológicos y financieros que requiera el Archivo General del Estado de Nayarit para el cumplimiento de la presente Ley.
+NOVENO. DEROGADO, P.O. 19 DE ENERO DE 2022)
 DÉCIMO. Las erogaciones que se generen con motivo de la entrada en vigor de la presente Ley para los sujetos obligados, se cubrirán con cargo a sus respectivos presupuestos aprobados para el presente ejercicio fiscal y subsecuentes.
-DÉCIMO PRIMERO. Las disposiciones reglamentarias derivadas de esta Ley deberán ser expedidas por el Poder Ejecutivo en un plazo no mayor a ciento ochenta días naturales, contados a partir de la entrada en vigor del presente Decreto.
+DÉCIMO PRIMERO. DEROGADO, P.O. 19 DE ENERO DE 2022)
 Dado en Sesión Pública Virtual del Recinto Oficial de este Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los diecisiete días del mes de diciembre del año dos mil veinte.
 Dip. Heriberto Castañeda Ulloa, Presidente.- Rúbrica.- Dip. Margarita Morán Flores, Secretaria.- Rúbrica.- Dip. Marisol Sánchez Navarro, Secretaria.- Rúbrica.
 Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit en Tepic su capital, a los veinticinco días del mes de enero de dos mil veintiuno.- L.C. ANTONIO ECHEVARRÍA GARCÍA.- Rúbrica.- El Secretario General de Gobierno, Lic. José Antonio Serrano Guzmán.- Rúbrica.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

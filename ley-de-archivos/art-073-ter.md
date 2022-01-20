@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE ENERO DE 2022)
+Articulo 73 Ter. Obligación de registrar. La inscripción al Registro Estatal es obligatoria para los sujetos obligados quienes deberán actualizar anualmente la información requerida en dicho Registro, de conformidad con las disposiciones que para tal efecto emita el Consejo Local y, en su caso, el Consejo Nacional, en términos de lo dispuesto por la normativa aplicable.

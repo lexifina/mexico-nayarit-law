@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE ENERO DE 2022)
+Artículo 77 Quater. Órgano de vigilancia. El Archivo General del Estado de Nayarit contará con un Órgano Interno de Control, de conformidad con lo dispuesto por la Ley Orgánica del Poder Ejecutivo del Estado de Nayarit y las disposiciones reglamentarias correspondientes; y ejercerá las facultades previstas en estos ordenamientos y los demás que le resulten aplicables.
