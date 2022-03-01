@@ -1,0 +1,7 @@
+P.O. 3 DE OCTUBRE DE 2015.
+(F. DE E., P.O. 24 DE OCTUBRE DE 2015)
+Primero.- El presente Decreto entrará en vigor el día primero de enero del año 2016, previa publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+Segundo.- Una vez publicado el presente Decreto, la Secretaría de Administración y Finanzas, deberá contemplar las adecuaciones correspondientes en el proyecto de Presupuesto de Egresos del Estado para el ejercicio fiscal 2016.
+Tercero.- Dentro de un plazo de noventa días contados a partir de la entrada en vigor del presente Decreto, deberán adecuarse y en su caso expedirse los reglamentos interiores de la Secretaría de Planeación, Programación y Presupuesto y de la Secretaría de Desarrollo Rural y Medio Ambiente.
+Cuarto.- A la entrada en vigor el (sic) presente Decreto, se realizará el traspaso de los recursos humanos, materiales, técnicos y financieros de la Secretaría de Desarrollo Social a la Secretaría de Planeación, Programación y Presupuesto; y de la Secretaría del Medio Ambiente y la Secretaría de Agricultura, Ganadería, Desarrollo Rural y Pesca, a la Secretaría de Desarrollo Rural y Medio Ambiente, de conformidad con los Acuerdos de transferencia que al efecto disponga el Titular del Poder Ejecutivo.
+Quinto.- Los servidores públicos adscritos a la Secretaría de Desarrollo Social, Secretaría del Medio Ambiente y Secretaría de Agricultura, Ganadería, Desarrollo Rural y Pesca, no resultarán afectados en sus derechos laborales adquiridos.

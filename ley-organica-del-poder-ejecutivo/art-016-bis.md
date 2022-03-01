@@ -1,0 +1,4 @@
+(REFORMADO PRIMER PÁRRAFO, P.O. 18 DE ENERO DE 2021)
+Artículo 16 Bis.- Las dependencias y entidades de la Administración Pública del Estado, enviarán a la Consejería Jurídica del Gobernador, los proyectos de iniciativas de leyes o decretos que deban ser sometidos al Congreso del Estado, así como aquellos decretos, acuerdos, reglamentos, convenios y demás instrumentos normativos o administrativos que requieran la firma del titular del Poder Ejecutivo, conforme a los plazos y procedimientos establecidos en el reglamento interior de la Consejería.
+(ADICIONADO, P.O. 29 DE MAYO DE 2019)
+Las dependencias y entidades de la Administración Pública del Estado proporcionarán oportunamente a la Consejería Jurídica del Gobernador la información y apoyo que requiera para el cumplimiento de sus funciones.
