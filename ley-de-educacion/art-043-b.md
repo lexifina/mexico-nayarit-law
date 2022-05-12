@@ -4,5 +4,9 @@ a).- Un diagnóstico de educación en el estado;
 b).- Instrumentos para la evaluación;
 c).- Métodos de evaluación permanente;
 d).- Proyectos estratégicos;
-e).- Líneas de acción, y
-d) (sic).- La participación directa de los diversos sectores sociales involucrados en el proceso educativo.
+(REFORMADO, P.O. 11 DE MAYO DE 2022)
+e).- Líneas de acción;
+(REFORMADO, P.O. 11 DE MAYO DE 2022)
+f).- La participación directa de los diversos sectores sociales involucrados en el proceso educativo, y
+(ADICIONADO, P.O. 11 DE MAYO DE 2022)
+g).- Mecanismos para la paz y no violencia.
