@@ -1,0 +1,6 @@
+P.O. 19 DE MAYO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NAYARIT, EN MATERIA DE PARIDAD DE GÉNERO".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO.- La integración de los órganos públicos estatales y áreas administrativas municipales, habrá de realizarse de manera progresiva y equitativa hasta garantizar el principio de paridad de género, a partir de las nuevas designaciones y nombramientos que correspondan, sin que lo anterior implique la prohibición absoluta de designación de un género en específico, siempre que se avance en alcanzar la igualdad sustantiva.
+TERCERO.- Dentro de los 180 días naturales posteriores a la publicación oficial del presente Decreto, los Ayuntamientos de la Entidad deberán emitir o adecuar los reglamentos municipales y adoptar las medidas que resulten necesarias para garantizar el cumplimiento del mismo.
+CUARTO.- Para los efectos del artículo 131 de la Constitución Política del Estado Libre y Soberano de Nayarit remítase el presente Decreto a los veinte Ayuntamientos de la entidad.
