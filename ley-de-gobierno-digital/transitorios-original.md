@@ -1,0 +1,10 @@
+TRANSITORIOS
+PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO. Se derogan todas las disposiciones que se opongan a la presente Ley.
+TERCERO. El Titular del Poder Ejecutivo expedirá el Reglamento de la Ley de Gobierno Digital para el Estado de Nayarit, dentro de los ciento ochenta días hábiles siguientes a la fecha de entrada en vigor de esta Ley.
+Los lineamientos para la implementación y operación del Sistema Estatal de Trámites y Servicios para la Ventanilla Única, deberán emitirse en un plazo no mayor a noventa días hábiles siguientes a la entrada en vigor de esta Ley.
+CUARTO. El Consejo Estatal de Gobierno Digital deberá quedar instalado dentro de los ciento ochenta días hábiles siguientes a la fecha de entrada en vigor del Reglamento.
+QUINTO. Se establece un periodo de dieciocho meses, contados a partir de la entrada en vigor de la presente Ley, para que se implementen de ser el caso, las medidas técnicas, administrativas, operativas, así como los ajustes presupuestales necesarios para la debida implementación de las políticas y acciones establecidas en la presente Ley.
+DADO en la Sala de Sesiones "Lic. Benito Juárez García" Recinto Oficial de este Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital a los veinte días del mes de mayo del año dos mil veintidós.
+Dip. Alba Cristal Espinoza Peña, Presidenta .- Rúbrica.- Dip. Jesús Noelia Ramos Nungaray, Secretaria.- Rúbrica.- Dip. Georgina Guadalupe López Arias, Secretaria.- Rúbrica.
+Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado, y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los trece días del mes de junio de dos mil veintidós.- DR. MIGUEL ÁNGEL NAVARRO QUINTERO, Gobernador Constitucional del Estado.- Rúbrica.- Lic. Juan Antonio Echeagaray Becerra, Secretario General de Gobierno.- Rúbrica.
