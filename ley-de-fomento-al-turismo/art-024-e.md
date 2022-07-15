@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE JULIO DE 2022)
+ARTICULO 24 E.- La Secretaría en conjunto con las dependencias y entidades de la administración pública estatal y los prestadores de servicios turísticos, promoverán la participación de los habitantes de las zonas donde se practique el turismo rural, con el fin de involucrarlos en el desarrollo, planificación, manejo y aprovechamiento sostenible de los recursos naturales de su entorno.
