@@ -1,0 +1,4 @@
+P.O. 19 DE JULIO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOSICIONES DE LA LEY DE SALUD PARA EL ESTADO DE NAYARIT".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado del Estado de Nayarit.
+SEGUNDO.- La aplicación del tamiz neonatal para la detección de alteraciones del metabolismo, cardiopatías congénitas graves o críticas, estará sujeta a la disponibilidad presupuestaria de la Secretaría de Salud y los Servicios de Salud de Nayarit, así como a la publicación de la Norma Oficial Mexicana que para tal efecto hará la Secretaría de Salud del Gobierno Federal, de conformidad con el transitorio segundo del Decreto por el que se adiciona una fracción II Bis al artículo 61 de la Ley General de Salud, publicado en el Diario Oficial de la Federación el 1 de junio de 2021.

@@ -7,7 +7,8 @@ IV. A ser informado sobre las campañas, planes, programas y servicios que propo
 V. A conservar la confidencialidad de información personal, a una historia clínica de conformidad con lo establecido en las normas oficiales y al anonimato de los participantes en estudios;
 VI. Contar con un representante que cuide en todo momento sus intereses. Para esto, la autoridad judicial deberá cuidar que no exista conflicto de intereses por parte del representante;
 VII. A que se informe al padre, madre, tutor o representante legal con veracidad de la condición y el posible efecto del programa, campaña o tratamiento que reciba la persona usuaria, en caso de que sea menor de edad o incapaz.
-Lo anterior es aplicable a toda la población, incluida aquella que se encuentra en unidades médicas de reclusorios y comunidades para adolescentes, así como a grupos vulnerables;
+(REFORMADO, P.O. 19 DE JULIO DE 2022)
+Lo anterior es aplicable a toda la población, incluida aquella que se encuentra en unidades médicas de reclusorios y comunidades para adolescentes, así como a grupos sociales en situación de vulnerabilidad;
 VIII. A que se le apliquen exámenes de valoración, confiables y actualizados que consideren su entorno social o característica a estudiar y a conocer los alcances y las limitaciones de las evaluaciones realizadas;
 IX. A solicitar su diagnóstico diferencial;
 X. Ser tratado y atendido en su comunidad o lo más cerca posible al lugar en donde habiten sus familiares;
