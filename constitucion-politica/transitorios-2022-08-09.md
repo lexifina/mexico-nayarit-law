@@ -1,0 +1,5 @@
+P.O. 9 DE AGOSTO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA LOS ARTÍCULOS 7 Y 134 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NAYARIT, EN MATERIA DE GOBIERNO DIGITAL".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO. Se establece un periodo de dieciocho meses, contados a partir de la entrada en vigor del presente Decreto, para que las instituciones del Estado y sus municipios realicen de manera paulatina la armonización de los ordenamientos normativos en su ámbito competencial, así como para que implementen las medidas técnicas, administrativas, operativas, así como los ajustes presupuestales necesarios para la debida implementación de las políticas y acciones en materia de Gobierno Digital, de conformidad con lo establecido en el presente Decreto.
+TERCERO. Para los efectos del artículo 131 de la Constitución Política del Estado Libre y Soberano de Nayarit remítase el presente Decreto a los veinte Ayuntamientos de la entidad.
