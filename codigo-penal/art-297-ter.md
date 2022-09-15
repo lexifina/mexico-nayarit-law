@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 14 DE JULIO DE 2022)
+ARTÍCULO 297 Ter.- Se impondrán las mismas sanciones previstas en el artículo anterior, a la persona que revele, difunda, exponga, divulgue, comparta, distribuya, publique, videograbe, audiograbe, fotografíe, imprima o elabore imágenes, videos o audios de contenido manipulado o alterado, íntimo sexual, erótico o pornográfico, que no correspondan con la persona que es señalada o identificada en los mismos, realizado por medio de deepfake.
+Para efectos punibles, se entiende como deepfake, a las imágenes, videos, audio o voz que son manipuladas utilizando software o tecnologías de inteligencia artificial, de manera que el resultado alterado luzca auténtico.
