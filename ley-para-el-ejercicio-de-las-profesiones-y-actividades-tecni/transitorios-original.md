@@ -15,3 +15,4 @@ Y en cumplimiento de lo dispuesto en la Fracción II del Artículo 69 de la Cons
 C.EMILIO M. GONZALEZ.- Rúbrica
 El Secretario General de Gobierno
 LIC. RAFAEL PEREZ CARDENAS.- Rúbrica.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
