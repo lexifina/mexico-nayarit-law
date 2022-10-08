@@ -37,8 +37,10 @@ Para los efectos de estos derechos, se aplicará el 50 por ciento de la tarifa c
 Los propietarios o poseedores de los predios, giros o establecimientos que se surtan de agua por medio de las derivaciones que autorice el Ayuntamiento o el organismo descentralizado, deberán pagar el 50 por ciento de la cuota mensual o bimestral correspondiente al diámetro de la derivación, si la toma no tiene medidor.
 (ADICIONADA, P.O. 10 DE DICIEMBRE DE 2011)
 III. Por la reparación del aparato medidor del consumo de agua, se pagarán los siguientes derechos:
-A). Para uso doméstico: 2.5 días de salario mínimo general vigente en el Estado, y
-B). Para uso no doméstico: 5 días de salario mínimo general vigente en el Estado.
+(REFORMADO, P.O. 7 DE OCTUBRE DE 2022)
+A). Para uso doméstico: 4.4 veces el valor diario de la Unidad de Medida y Actualización vigente, y
+(REFORMADO, P.O. 7 DE OCTUBRE DE 2022)
+B). Para uso no doméstico: 8.9 veces el valor diario de la Unidad de Medida y Actualización vigente.
 No se pagarán los derechos previstos en esta fracción, durante el primer año, a partir de la instalación del aparato medidor, por una sola vez, salvo los casos en que dicho aparato haya sido deteriorado por causas imputables al usuario, en los que éste deberá cubrir el 100 por ciento del costo de la reparación del aparato.
 (ADICIONADO, P.O. 10 DE DICIEMBRE DE 2011)
 En los casos en que el pago de los derechos a que se refiere este artículo se realice en base a consumos cuantificados a través del aparato medidor, mismo que será instalado por la autoridad municipal competente a costa del usuario, éste está obligado a reportar mediante los formatos oficiales al prestador de servicios que corresponda, los consumos de agua y efectuar su pago dentro de los primeros quince días siguientes al periodo que se esté reportando.
