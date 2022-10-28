@@ -1,0 +1,9 @@
+TRANSITORIOS
+PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO. Se derogan todas las disposiciones que se opongan a la presente Ley.
+TERCERO. Las Dependencias, Organismos y Entidades Públicas Estatales y Municipales, dentro de los noventa días hábiles siguientes a (sic) entrada en vigor de la presente Ley, proporcionarán a la Secretaría de Administración y Finanzas o a los Ayuntamientos según corresponda, la información para la elaboración del catálogo o registro clasificatorio de los bienes muebles.
+CUARTO. Las Dependencias, Organismos y Entidades Públicas Estatales y municipales procederán, dentro de los ciento ochenta días hábiles siguientes a la entrada en vigor de la presente Ley, deberán expedir o en su caso ajustar los Lineamientos a los parámetros que establece el presente marco normativo.
+Las disposiciones normativas en la materia que se encuentren vigentes continuaran su aplicación, siempre y cuando no contravengan lo dispuesto en este ordenamiento.
+DADO en la Sala de Sesiones "Lic. Benito Juárez García" Recinto Oficial de este Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital a los trece días del mes de octubre del año dos mil veintidós.
+Dip. Alba Cristal Espinoza Peña, Presidenta.- Rúbrica.- Dip. Luis Fernando Pardo González, Secretario.- Rúbrica.- Dip. Alejandro Regalado Curiel, Secretario.- Rúbrica.
+Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado, y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los veintisiete días del mes de octubre de dos mil veintidós.- DR. MIGUEL ÁNGEL NAVARRO QUINTERO, Gobernador Constitucional del Estado.- Rúbrica.- Lic. Juan Antonio Echeagaray Becerra, Secretario General de Gobierno,- Rúbrica.
