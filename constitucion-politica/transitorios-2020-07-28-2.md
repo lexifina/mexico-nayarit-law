@@ -5,4 +5,4 @@ SEGUNDO.- Los Consejeros nombrados por los Poderes Legislativo y Ejecutivo, así
 TERCERO.- El actual presidente seguirá en funciones hasta la conclusión del periodo para el que fue designado, quedando a salvo su derecho para participar en la elección en los términos de la presente reforma.
 CUARTO.- Dentro de los ciento veinte días naturales siguientes a que entre en vigor el presente Decreto, el Congreso del Estado deberá armonizar con la presente reforma, las disposiciones legales correspondientes.
 QUINTO.- Para los efectos previstos por el artículo 131 de la Constitución Política del Estado Libre y Soberano de Nayarit, remítase el presente Decreto a los Ayuntamientos de la Entidad.
-SEXTO.- Por única ocasión el Consejo de la Judicatura del Poder Judicial del Estado de Nayarit, remitirá al Congreso del Estado propuesta de la terna para la designación de la siguiente vacante de Magistrado Numerario del Tribunal Superior de Justicia, previa convocatoria pública para el concurso de oposición, entre los jueces de primera instancia que cuenten con más de 10 años de carrera judicial al día de la designación.
+SEXTO.- (DEROGADO, P.O. 1 DE DICIEMBRE DE 2022)
