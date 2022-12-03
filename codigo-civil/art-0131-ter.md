@@ -1,9 +1,6 @@
-(ADICIONADO, P.O. 27 DE JULIO DE 2017)
-Artículo 131 Ter.- Para realizar el levantamiento de una nueva acta de nacimiento para el reconocimiento de identidad de género, las personas interesadas deberán presentar:
-I. Solicitud debidamente requisitada;
-II. Copia certificada del acta de nacimiento primigenia para efecto de que se haga la reserva correspondiente;
-III. Original y copia fotostática de su identificación oficial, y
-IV. Comprobante de domicilio.
-El levantamiento se realizará en la Dirección Estatal del Registro Civil o en el lugar en el que se llevó a cabo la declaración de nacimiento. Se procederá de inmediato a hacer la anotación y la reserva correspondiente. En el caso de que se realice en la Dirección Estatal del Registro Civil, éste dará aviso a aquél donde se encuentre el acta de nacimiento primigenia.
-El acta de nacimiento primigenia quedará reservada y no se publicará ni expedirá constancia alguna, salvo mandamiento judicial o petición ministerial.
-Una vez cumplido el trámite correspondiente, se enviarán los oficios con la información, en calidad de reservada, para los efectos legales procedentes, a las autoridades federales y estatales en materia fiscal y de población, de Educación, de Salud, de Procuración de Justicia, a la Secretaria de Relaciones Exteriores, Instituto Nacional Electoral, Tribunal Superior de Justicia del Estado; así como aquellas autoridades que se consideren convenientes.
+(REFORMADO, P.O. 2 DE DICIEMBRE DE 2022)
+Artículo 131 Ter.- Cuando el suceso registrado conste en otra acta de fecha anterior, en todo o en parte; o cuando se considere que no haya ocurrido, podrá solicitarse la nulidad de un acta del Registro Civil.
+Es procedente ante la vía administrativa y solo ante la Dirección Estatal del Registro Civil, la nulidad de un acta en los siguientes casos:
+I. Para anular el registro de nacimiento de una persona que presente diversa acta de nacimiento expedida por la autoridad competente de otro país, debidamente apostillada o legalizada por el país emisor y su traducción por perito autorizado o con la inscripción del acta extranjera en el Registro Civil;
+II. Para anular el registro de nacimiento de una persona que presente dos o más registros en el Estado de Nayarit, y
+III. Para anular el registro de nacimiento celebrado en esta Entidad Federativa, cuando se compruebe que existe otro registro de nacimiento de la misma persona en Entidad diversa.

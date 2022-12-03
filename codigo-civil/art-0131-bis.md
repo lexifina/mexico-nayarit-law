@@ -1,6 +1,16 @@
-(ADICIONADO, P.O. 27 DE JULIO DE 2017)
-Artículo 131 Bis.- Pueden pedir el levantamiento de una nueva acta de nacimiento para el reconocimiento de la identidad de género, previa la anotación correspondiente en su acta de nacimiento primigenia, las personas que requieran el reconocimiento de su identidad de género.
-Se entenderá por identidad de género la convicción personal e interna, tal como cada persona se percibe así misma, la cual puede corresponder o no, al sexo asignado en el acta primigenia. En ningún caso será requisito acreditar intervención quirúrgica alguna, terapias u otro diagnóstico y/o procedimiento para el reconocimiento de la identidad de género.
-Los efectos de la nueva acta de nacimiento para identidad de género realizados, serán oponibles a terceros desde de su levantamiento.
-Los derechos y obligaciones contraídas con anterioridad al proceso administrativo para el reconocimiento de identidad de género y a la expedición de la nueva acta, no se modificarán ni se extinguen con la nueva identidad jurídica de la persona; incluidos los provenientes de las relaciones propias del derecho de familia en todos sus órdenes y grados, los que se mantendrán inmodificables.
-En los casos de las fracciones V y VI del artículo anterior, también procederá el levantamiento de nueva acta.
+(REFORMADO, P.O. 2 DE DICIEMBRE DE 2022)
+Artículo 131 Bis.- Se podrá pedir la rectificación de cualquier acta del Registro Civil, en los casos siguientes:
+I. Cuando en las actas existan errores mecanográficos, ortográficos o de impresión que no afecten los datos esenciales de aquéllas;
+II. Cuando existan discordancias u omisiones en los apellidos asentados, con los mismos contenidos en el acta;
+III. Cuando exista omisión de algún dato relativo al acto o hecho de que se trate o de la anotación que deba contener el acta;
+IV. En caso de ilegibilidad de caracteres, así como discordancias, errores, omisiones o imprecisiones en el llenado de los campos de texto de los formatos;
+V. Cuando exista omisión en los datos de localización del documento;
+VI. Cuando se omitan el lugar de nacimiento o la nacionalidad en el acta;
+VII. En caso de errores o discordancias en las anotaciones ordenadas por la autoridad judicial;
+VIII. Cuando los ascendientes hayan rectificado sus actas respectivas, cuando los datos modificados tengan relación directa con las actas de los descendientes;
+IX. En caso de discordancia entre el acta del libro original y el acta del libro duplicado o cuando se adviertan errores y omisiones del cotejo efectuado a los documentos contenidos en sus apéndices de donde se transcribieron los datos;
+X. Cuando existan abreviaturas de nombre y apellidos, siempre y cuando del mismo documento se puedan inferir;
+XI. Cuando en el acta aparezca error en el sexo;
+XII. Por cambio de régimen patrimonial durante el matrimonio, y
+XIII. Tratándose de actas de nacimiento, cuando la fecha de nacimiento se haya omitido o ésta se encuentre asentada en forma imprecisa, siempre y cuando no rompa el orden lógico-cronológico inmediato anterior o posterior con respecto a la fecha de registro.
+El Registro Civil recibirá la solicitud de rectificación y deberá resolver en un lapso de diez días hábiles contados a partir de la recepción de la misma.
