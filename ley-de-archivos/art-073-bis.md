@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 19 DE ENERO DE 2022)
-Artículo 73 Bis. Objeto. El Sistema Estatal contará con el Registro Estatal de Archivos, cuyo objeto es obtener y concentrar información sobre los sistemas institucionales y de los archivos privados de interés público, así como difundir el patrimonio documental resguardado en sus archivos, el cual será administrado por el Archivo General del Estado, su organización y funcionamiento será conforme a las disposiciones que emita el propio Consejo Local.
+(REFORMADO, P.O. 6 DE MARZO DE 2023)
+Artículo 73 Bis. Coordinación. Cada sujeto obligado, a través de sus áreas coordinadoras de archivo, deberán alimentar el Registro Nacional de Archivos sobre los documentos que obren en su poder y sobre los cambios en la información a que se lleguen a generar.
