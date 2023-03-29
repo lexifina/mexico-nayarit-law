@@ -1,0 +1,3 @@
+P.O. 28 DE MARZO DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO QUE REFORMA LAS FRACCIONES V Y XVI DEL ARTÍCULO 15 DE LA LEY DE CIENCIA, TECNOLOGÍA E INNOVACIÓN DEL ESTADO DE NAYARIT, EN MATERIA DE ELIMINACIÓN DE BRECHAS DE GÉNERO EN LA CIENCIA, TECNOLOGÍA E INNOVACIÓN".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
