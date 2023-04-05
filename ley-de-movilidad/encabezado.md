@@ -1,5 +1,4 @@
 LEY DE MOVILIDAD DEL ESTADO DE NAYARIT
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 20 DE SEPTIEMBRE DE 2022.]
 Ley publicada en la Sección quinta del Número 003 del Periódico Oficial del Estado de Nayarit, el martes 7 de enero de 2020.
 Al margen un Sello con el Escudo Nacional que dice: Estados Unidos Mexicanos.- Poder Legislativo.- Nayarit.
 "Año 2019, Centenario de la Inmortalidad del Bardo Nayarita y Poeta Universal Amado Nervo"
