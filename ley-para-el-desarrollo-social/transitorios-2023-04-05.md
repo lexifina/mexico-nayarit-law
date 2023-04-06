@@ -1,0 +1,3 @@
+P.O. 5 DE ABRIL DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY PARA EL DESARROLLO SOCIAL DEL ESTADO DE NAYARIT, EN MATERIA DE POLÍTICA DIGITAL PARA LA DIFUSIÓN DE LOS PROGRAMAS SOCIALES".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
