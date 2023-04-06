@@ -1,0 +1,3 @@
+P.O. 5 DE ABRIL DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO QUE ADICIONA UN ÚLTIMO PÁRRAFO AL ARTÍCULO 109 Y DEROGAR (SIC) LA FRACCIÓN I DEL PRIMER PÁRRAFO DEL ARTÍCULO 109 DE LA LEY PARA EL DESARROLLO AGRÍCOLA SUSTENTABLE DEL ESTADO DE NAYARIT, EN MATERIA DE ROBO AGRÍCOLA".]
+ÚNICO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
