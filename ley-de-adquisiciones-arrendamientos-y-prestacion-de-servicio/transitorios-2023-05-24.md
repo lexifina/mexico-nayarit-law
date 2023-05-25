@@ -1,0 +1,6 @@
+P.O. 24 DE MAYO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOSICIONES DE LA LEY DE ADQUISICIONES, ARRENDAMIENTOS Y PRESTACIÓN DE SERVICIOS DEL ESTADO DE NAYARIT".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO. Las menciones contenidas en otras leyes, reglamentos y en general en cualquier disposición, respecto del Instituto de Adquisiciones, Arrendamientos y Prestación de Servicios (INAPS, de la cual se reforman sus siglas en virtud del presente Decreto, deberán entenderse referidas a INAAPS.
+Todos los documentos públicos o privados que se hayan expedido previamente a la entrada en vigor del presente Decreto y que hagan referencia al INAPS, deberán entenderse hechas a INAAPS, por lo tanto, seguirán teniendo plena validez. Aquellos que se deban emitir posteriormente a la entrada en vigor del presente Decreto, deberán referirse expresamente a INAAPS.
+TERCERO. En virtud de las disposiciones que se reforman, adicionan y derogan a través del presente Decreto, a partir de su entrada en vigor, se establece un plazo de ciento veinte días hábiles, para que se realicen las adecuaciones al Reglamento de la presente Ley, así como a la demás normativa interna aplicable en la materia.
