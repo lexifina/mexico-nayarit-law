@@ -17,7 +17,9 @@ IX.- Promover el consumo de alimentos saludables, así como prohibir que las tie
 X.- Atender las disposiciones contenidas en la presente Ley y demás ordenamientos legales que favorezcan la calidad de la educación y el bienestar integral de los educandos y trabajadores de la educación;
 (ADICIONADA, P.O. 10 DE MARZO DE 2014)
 XI.- Organizar servicios permanentes de promoción y asesoría de educación para adultos y dará las facilidades necesarias a sus trabajadores y familiares para estudiar y acreditar la educación primaria, secundaria y media superior;
-(ADICIONADA, P.O. 10 DE MARZO DE 2014)
-XII.- Brindar cursos a los docentes y al personal que labora en los planteles de educación, sobre los derechos de los educandos y la obligación que tienen al estar encargados de su custodia, de protegerlos contra toda forma de maltrato, perjuicio, daño, agresión, abuso, trata o explotación, y
-(REFORMADA, P.O. 5 DE NOVIEMBRE DE 2020)
-XIII.- Incluir en la educación especial la orientación a las madres y padres o tutores, así como también a las maestras y maestros y personal de escuelas de educación básica y media superior regulares que integren a los alumnos con necesidades especiales de educación.
+(REFORMADA, P.O. 4 DE AGOSTO DE 2023)
+XII.- Brindar cursos a los docentes y al personal que labora en los planteles de educación, sobre los derechos de los educandos y la obligación que tienen al estar encargados de su custodia, de protegerlos contra toda forma de maltrato, perjuicio, daño, agresión, abuso, trata o explotación;
+(REFORMADA, P.O. 4 DE AGOSTO DE 2023)
+XIII.- Incluir en la educación especial la orientación a las madres y padres o tutores, así como también a las maestras o los maestros y personal de las escuelas de educación básica y media superior regulares que integren a los alumnos con necesidades especiales de educación, y
+(ADICIONADA, P.O. 4 DE AGOSTO DE 2023)
+XIV.- Promover acciones para recuperar o dar continuidad a los planes y programas educativos, en caso de desastres naturales o contingencia sanitaria.
