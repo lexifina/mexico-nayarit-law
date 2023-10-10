@@ -10,7 +10,8 @@ d). Aplicar políticas públicas para combatir la explotación laboral de menore
 e). Respetar y fomentar el espíritu ecologista y la preservación del medio ambiente en el trabajo, y
 f). Promover la democracia sindical y el acceso a la contratación colectiva.
 IV. Procurar el equilibrio entre los factores de la producción de conformidad con las disposiciones legales aplicables;
-V. Elaborar y desarrollar programas para el trabajo y el empleo, de acuerdo con el Programa de Gobierno y el Gran Plan Estatal de Desarrollo;
+(REFORMADA, P.O. 9 DE OCTUBRE DE 2023)
+V. Elaborar y desarrollar programas para el trabajo y el empleo, de acuerdo con el Plan Estatal de Desarrollo y el Plan Estratégico;
 VI. Realizar los programas y acciones necesarias para impulsar el incremento de la productividad y calidad en el trabajo en los sectores productivos;
 VII. Fomentar la capacitación y adiestramiento para el incremento de la productividad y la calidad en el trabajo, en coordinación con las instancias educativas. Así como llevar a cabo los programas de educación, capacitación y vinculación para el empleo;
 VIII. Diseñar y proponer acciones y alianzas estratégicas para la generación de empleo e incremento de la productividad, integrando para tal propósito a las instituciones educativas, científicas, tecnológicas, sectores público, social y privado, y a la sociedad civil en general;
