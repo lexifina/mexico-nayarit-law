@@ -1,28 +1,55 @@
-(ADICIONADO, P.O. 24 DE MARZO DE 2012)
-ARTICULO 11 A.- Los prestadores de servicios turísticos tendrán las siguientes obligaciones:
-I. Prestar servicios sin violentar las disposiciones establecidas en esta Ley y en la normatividad vigente;
-II. Anunciar en los lugares de acceso al establecimiento sus precios, tarifas y los servicios que éstos incluyen;
-III. Informar sobre el lugar de destino turístico, las condiciones del viaje, la estancia y el costo del servicio a los turistas, de manera previa a la contratación;
-IV. Cumplir con las medidas de seguridad en materia de protección civil que emitan las autoridades;
-V. Cumplir los precios, tarifas, promociones, reservaciones, y demás prestaciones y servicios acordados, en los términos anunciados, ofrecidos y convenidos;
-VI. Implantar el sistema de quejas de Turistas en términos de lo que establezca el reglamento de esta Ley;
-VII. Garantizar el acceso a las instalaciones y trato equitativo a las personas con discapacidad, a los indígenas, personas de la tercera edad y demás individuos que se consideren parte de un grupo vulnerable;
-VIII. Mantener sus instalaciones en óptimas condiciones de servicio, seguridad e higiene, de acuerdo a la normatividad aplicable;
-IX. Proporcionar la información que en términos de esta Ley, le requiera la Secretaría o los municipios;
-X. Informar oportunamente a los turistas para prevenir actividades que degraden o pongan en peligro los ecosistemas, así como hacer del conocimiento de la autoridad competente de los daños ocasionados en su caso;
-XI. Inscribirse en el Registro Estatal de Turismo y obtener la cédula de calidad turística respectiva;
-XII. Atender la normatividad y las recomendaciones que formulen las autoridades competentes en materia de seguridad y protección civil;
-XIII. Respetar los usos y costumbres de los turistas, siempre que éstos no sean contrarios a las leyes;
-XIV. Coadyuvar a la preservación del medio ambiente y los recursos turísticos de conformidad con esta Ley y demás legislación de la materia;
-(REFORMADA, P.O. 3 DE DICIEMBRE DE 2016)
-XV. Procurar la buena imagen de los servicios turísticos que presten;
-(REFORMADA, P.O. 3 DE DICIEMBRE DE 2016)
-XVI. Prestar servicios atendiendo lo establecido en la presente Ley, la Ley General del Equilibrio Ecológico y la Protección al Ambiente, así como la Ley General de Vida Silvestre, y demás legislación en la materia, y
-(ADICIONADA, P.O. 3 DE DICIEMBRE DE 2016)
-XVII. Las demás que establezcan esta Ley y otras disposiciones legales y reglamentarias aplicables.
-(REFORMADA SU DENOMINACIÓN, P.O. 24 DE MARZO DE 2012)
+(REFORMADO PRIMER PÁRRAFO, P.O. 20 DE OCTUBRE DE 2023)
+ARTICULO 11 A.- Son obligaciones de los prestadores de servicios turísticos:
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+I. Observar estrictamente las disposiciones de esta Ley, la Ley General de Turismo y demás ordenamientos legales que normen su actividad;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+II. Colaborar con las distintas autoridades en la materia, en la optimización de la actividad turística;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+III. Proporcionar un trato adecuado a los turistas, brindándoles facilidades a las personas con discapacidad, personas pertenecientes a pueblos originarios y adultos mayores para su acceso y desplazamiento, así como instalaciones sanitarias aprobadas y ubicaciones preferenciales que aseguren su evacuación en caso de alguna contingencia;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+IV. Cumplir con los servicios, precios, tarifas y promociones en los términos anunciados, ofrecidos o acordados con independencia del medio de difusión utilizado para los efectos;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+V. Proporcionar la información que, en términos de esta Ley, le requiera la Secretaría o los municipios, con el objetivo de generar la estadística turística del Estado, esta información estará integrada por:
+a) Afluencia turística;
+b) Derrama económica;
+c) Estadía promedio;
+d) Perfil socioeconómico del Turista o Visitante;
+e) Gasto promedio;
+f) Tendencias del sector, y
+g) Cualquier información turística que requiera la Secretaría en los términos y condiciones que disponga, a efecto de elaborar indicadores oportunos, confiables y objetivos, que aporten a mejorar las condiciones del Estado.
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+VI. Inscribirse en el Registro Estatal de Turismo y tramitar, obtener y actualizar la Cédula Estatal de Calidad e Imagen Turística respectiva en los términos y condiciones que la Secretaría disponga, a efecto de que sus servicios puedan operar con plenitud en territorio Nayarita;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+VII. Exhibir en lugar visible la Cédula Estatal de Calidad e Imagen Turística;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+VIII. Facilitar el acceso a las instalaciones del lugar en que se presenten los Servicios Turísticos al personal autorizado por la Secretaría para la práctica de las diligencias previstas en esta Ley;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+IX. Cumplir con los Servicios Turísticos en los términos contratados o pactados;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+X. Denunciar de forma inmediata ante la autoridad competente, todo acto u omisión, vinculado a la comisión de hechos probablemente delictuosos o probables violaciones a derechos humanos en los que resulten afectados los turistas o visitantes;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+XI. Actuar con previsión en el uso y cuidado del Patrimonio Turístico, recursos naturales o el medio ambiente;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+XII. Exhibir en un lugar accesible y visible los precios, tarifas y servicios ofertados;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+XIII. Capacitar de forma permanente y continua al personal a su cargo con el objeto de mejorar la calidad de los servicios que prestan;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+XIV. Establecer protocolos de seguridad y primeros auxilios, en términos de lo que dispongan las autoridades competentes de la materia;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+XV. Implementar las medidas de seguridad tendientes a la protección y seguridad del patrimonio de los turistas o visitantes en los establecimientos y lugares donde presten sus servicios;
+(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
+XVI. Enterar el efectivo cumplimiento del pago al impuesto sobre el hospedaje a la autoridad fiscal, en los términos y condiciones que dispongan, los instrumentos normativos y la Ley de Hacienda del Estado de Nayarit;
+(REFORMADA [N. DE E. ADICIONADA], P.O. 20 DE OCTUBRE DE 2023)
+XVII. Prestar servicios atendiendo lo establecido en la presente Ley, la Ley General del Equilibrio Ecológico y la Protección al Ambiente, así como la Ley General de Vida Silvestre, y demás legislación en la materia;
+(ADICIONADA, P.O. 20 DE OCTUBRE DE 2023)
+XVIII. Acatar las resoluciones emitidas por la Secretaría en materia turística;
+(ADICIONADA, P.O. 20 DE OCTUBRE DE 2023)
+XIX. Cumplir con los convenios o acuerdos que celebre la Secretaría, con instancias estatales o federales, y
+(ADICIONADA [N. DE E. REUBICADA], P.O. 20 DE OCTUBRE DE 2023)
+XX. Las demás que establezcan esta Ley y otras disposiciones legales y reglamentarias aplicables.
+(REFORMADA SU DENOMINACIÓN, P.O. 20 DE OCTUBRE DE 2023)
 CAPÍTULO II
-De los Consejos Consultivos
+De los Consejos Consultivos y de la conferencia
 (ADICIONADA, P.O. 24 DE MARZO DE 2012)
 Sección Primera
 Consejo Consultivo Estatal de Turismo

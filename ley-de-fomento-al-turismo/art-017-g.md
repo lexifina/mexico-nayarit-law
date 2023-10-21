@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 24 DE MARZO DE 2012)
-ARTICULO 17 G.- El Consejo podrá emitir sugerencias y observaciones a la Secretaría para la formulación del Programa de Ordenamiento.
+(REFORMADO, P.O. 20 DE OCTUBRE DE 2023)
+ARTICULO 17 G.- La Conferencia podrá emitir sugerencias y observaciones a la Secretaría para la formulación del Programa de Ordenamiento.

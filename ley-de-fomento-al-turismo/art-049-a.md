@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 20 DE OCTUBRE DE 2023)
+ARTICULO 49 A.- Se sancionará a los Prestadores de Servicios Turísticos que contravengan las disposiciones contenidas en el artículo 11 A, de la presente Ley, en los términos siguientes:
+I. Amonestación a quienes realicen los actos u omisiones descritos en las fracciones I, II, III, IV, VIII, XII y XIII.
+II. Multa de 10 a 300 veces la Unidad de Medida y Actualización, a quienes realicen los actos u omisiones establecidos en las fracciones V, VI, VII, IX, X, XI, XIV, XV, XVI, XVII XVIII, y XIX; así como por reincidir en las infracciones establecidas en las fracciones I, II, III, IV, VIII, IX y XII.
+III. Cancelación de la Cédula Estatal de Calidad e Imagen Turística, y multa de 50 a 500 veces la Unidad de Medida y Actualización, a quienes reincidan en los actos u omisiones establecidos en las fracciones IV, VI, IX y X.
+IV. Procederá la Clausura temporal, además de la multa establecida en la fracción III del presente artículo, a quienes reincidan en los actos u omisiones establecidas en las fracciones VIII, X, XII, XIV, XV y XVIII.
+V. Además de las sanciones previstas en las fracciones II, III y IV del presente artículo, procederá la Reposición del Servicio Turístico al Turista o Visitante afectado, consistente en el reembolso, bonificación o compensación, por un tanto igual y hasta el doble de la suma correspondiente al servicio incumplido, así como los gastos y costas que en su caso pudieran generarse; a quienes realicen los actos u omisiones descritos en las fracciones IX y XV.
+Las sanciones establecidas en el presente artículo, se aplicarán, sin perjuicio de otras sanciones que correspondan por violaciones a las leyes y ordenamientos federales, estatales y municipales.
