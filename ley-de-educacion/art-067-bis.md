@@ -19,7 +19,9 @@ X.- Atender las disposiciones contenidas en la presente Ley y demás ordenamient
 XI.- Organizar servicios permanentes de promoción y asesoría de educación para adultos y dará las facilidades necesarias a sus trabajadores y familiares para estudiar y acreditar la educación primaria, secundaria y media superior;
 (REFORMADA, P.O. 4 DE AGOSTO DE 2023)
 XII.- Brindar cursos a los docentes y al personal que labora en los planteles de educación, sobre los derechos de los educandos y la obligación que tienen al estar encargados de su custodia, de protegerlos contra toda forma de maltrato, perjuicio, daño, agresión, abuso, trata o explotación;
-(REFORMADA, P.O. 4 DE AGOSTO DE 2023)
-XIII.- Incluir en la educación especial la orientación a las madres y padres o tutores, así como también a las maestras o los maestros y personal de las escuelas de educación básica y media superior regulares que integren a los alumnos con necesidades especiales de educación, y
-(ADICIONADA, P.O. 4 DE AGOSTO DE 2023)
-XIV.- Promover acciones para recuperar o dar continuidad a los planes y programas educativos, en caso de desastres naturales o contingencia sanitaria.
+(REFORMADA, P.O. 19 DE ENERO DE 2024)
+XIII.- Incluir en la educación especial la orientación a las madres y padres o tutores, así como también a las maestras o los maestros y personal de las escuelas de educación básica y media superior regulares que integren a los alumnos con necesidades especiales de educación;
+(REFORMADA, P.O. 19 DE ENERO DE 2024)
+XIV.- Promover acciones para recuperar o dar continuidad a los planes y programas educativos, en caso de desastres naturales o contingencia sanitaria, y
+(ADICIONADA, P.O. 19 DE ENERO DE 2024)
+XV.- Promover campañas para la concientización del correcto manejo de las redes sociales, mediante la participación de madres y padres de familia, así como de las y los trabajadores de la educación.
