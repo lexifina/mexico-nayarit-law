@@ -1,0 +1,6 @@
+P.O. 1 DE MARZO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE ADICIONA EL PÁRRAFO TERCERO AL ARTÍCULO 45 DE LA LEY PARA LA PROTECCIÓN E INCLUSIÓN DE LAS PERSONAS CON DISCAPACIDAD DEL ESTADO DE NAYARIT, EN MATERIA DE PROTECCIÓN A LA MOVILIDAD DE LAS PERSONAS CON DISCAPACIDAD EN ESPACIOS PRIVADOS DE ATENCIÓN AL PÚBLICO.]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación, en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO. Comuníquese el Decreto a los Ayuntamientos de la Entidad, para los efectos conducentes.
+TERCERO. Comuníquese el presente Decreto al Sistema para el Desarrollo Integral de la Familia del Estado de Nayarit, al Instituto Estatal Electoral de Nayarit, a la Universidad Autónoma de Nayarit, al Consejo Estatal para la Inclusión de Personas con Discapacidad de Nayarit y a la Comisión de Defensa de los Derechos Humanos para el Estado de Nayarit, como autoridades parte del Convenio de Colaboración en Materia de Proceso de Consulta a Personas con Discapacidad del Estado de Nayarit de fecha trece de julio de dos mil veintitrés, para su conocimiento y efectos correspondientes.
+CUARTO. El presente Decreto, deberá publicarse en lenguaje accesible y comprensible, utilizando toda herramienta o sistema que permita cumplir dicho elemento de accesibilidad para las personas con discapacidad.
