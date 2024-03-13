@@ -24,10 +24,12 @@ X. El cuerpo o restos de la víctima hayan sido enterrados, ocultos, incinerados
 XI. Cuando la víctima se haya encontrado en un estado de indefensión. Entiéndase esta como la situación de desprotección real o incapacidad que imposibilite su defensa o la solicitud de auxilio;
 (ADICIONADA, P.O. 9 DE DICIEMBRE DE 2022)
 XII. Que el sujeto activo haya obligado a la víctima a realizar o ejercer la prostitución, o haya ejercido actos de trata de personas en agravio de la víctima;
-(ADICIONADA, P.O. 9 DE DICIEMBRE DE 2022)
-XIII. Cuando el sujeto activo mediante engaños tenga comunicación con la víctima a través de redes sociales o cualquier plataforma tecnológica, logrando obtener su confianza de manera previa a la privación de la vida, o
-(ADICIONADA, P.O. 9 DE DICIEMBRE DE 2022)
-XIV. La situación de vulnerabilidad en la que se encontraba la víctima al momento de la comisión del delito por el imputado.
+(REFORMADA, P.O. 12 DE MARZO DE 2024)
+XIII. Cuando el sujeto activo mediante engaños tenga comunicación con la víctima a través de redes sociales o cualquier plataforma tecnológica, logrando obtener su confianza de manera previa a la privación de la vida;
+(REFORMADA, P.O. 12 DE MARZO DE 2024)
+XIV. La situación de vulnerabilidad en la que se encontraba la víctima al momento de la comisión del delito por el imputado, o
+(ADICIONADA, P.O. 12 DE MARZO DE 2024)
+XV. El delito sea cometido en contra de una mujer trans o de una persona cuya expresión de género se encuentre dentro del espectro del género femenino.
 (ADICIONADO, P.O. 9 DE DICIEMBRE DE 2022)
 Quien intente dolosamente privar de la vida a una mujer por las razones de género establecidas en este artículo y no lo lograse por cualquier circunstancia, se le considerará como tentativa de feminicidio.
 (ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2016)
