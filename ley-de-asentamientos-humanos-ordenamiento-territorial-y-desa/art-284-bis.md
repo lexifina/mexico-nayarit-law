@@ -1,0 +1,6 @@
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 8 DE ABRIL DE 2024)
+CAPÍTULO QUINTO
+DEL IMPACTO URBANO, AMBIENTAL Y DE MOVILIDAD
+(ADICIONADO, P.O. 8 DE ABRIL DE 2024)
+Artículo 284 Bis.- El Dictamen de Impacto Urbano, Ambiental y de Movilidad establecerá las condiciones o requisitos que tendrán que cumplirse para autorizar el proyecto u obra de que se trate, en particular aquellos que aseguren que los impactos negativos se impidan, mitiguen o compensen, así como los costos que la obra pueda generar sobre las redes de infraestructura, equipamiento o servicios públicos, al medio ambiente, en la movilidad y seguridad vial, que sean sufragados por el promovente.
+Las condicionantes o requisitos que se establezcan, podrán ser, económicos , ambientales o funcionales. El promovente deberá garantizar las obligaciones que resulten a su cargo, como resultado del Dictamen de Impacto Urbano, Ambiental y de Movilidad.

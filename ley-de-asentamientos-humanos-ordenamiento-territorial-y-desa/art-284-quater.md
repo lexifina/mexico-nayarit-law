@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE ABRIL DE 2024)
+Artículo 284 Quater.- Los propietarios o promoventes de las acciones urbanísticas referidas en la presente Ley, previo pago de derechos establecidos en la Ley de Ingresos respectiva, deberán solicitar la emisión del Dictamen de Impacto Urbano, Ambiental y de Movilidad, a fin de gestionar adecuadamente las autorizaciones emitidas por las autoridades competentes.
