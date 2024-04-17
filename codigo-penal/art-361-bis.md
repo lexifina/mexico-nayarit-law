@@ -30,7 +30,7 @@ XIII. Cuando el sujeto activo mediante engaños tenga comunicación con la víct
 XIV. La situación de vulnerabilidad en la que se encontraba la víctima al momento de la comisión del delito por el imputado, o
 (ADICIONADA, P.O. 12 DE MARZO DE 2024)
 XV. El delito sea cometido en contra de una mujer trans o de una persona cuya expresión de género se encuentre dentro del espectro del género femenino.
-(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2022)
+(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2022) (F. DE E., P.O. 17 DE ABRIL DE 2024)
 Quien intente dolosamente privar de la vida a una mujer por las razones de género establecidas en este artículo y no lo lograse por cualquier circunstancia, se le considerará como tentativa de feminicidio.
-(ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2016)
+(ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2016) (F. DE E., P.O. 17 DE ABRIL DE 2024)
 En caso que no se acredite el feminicidio se aplicarán las reglas del homicidio.
