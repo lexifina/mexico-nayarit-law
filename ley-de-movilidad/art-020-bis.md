@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE ABRIL DE 2024)
+Artículo 20 Bis. El Poder Ejecutivo del Estado y los Ayuntamientos, establecerán la utilización de dispositivos de control del tránsito y dispositivos de seguridad vial de manera progresiva, acordes a la evidencia internacional, en armonía con las regulaciones que se emitan sobre el diseño vial seguro, con el objeto (sic) atender los estándares nacionales que se definan en las instancias correspondientes.

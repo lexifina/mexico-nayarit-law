@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE ABRIL DE 2024)
+Artículo 13 Bis. El sistema de movilidad debe ser igualitario, equitativo e inclusivo, procurando garantizar la equiparación de las oportunidades de la población para alcanzar un efectivo ejercicio de su derecho a la movilidad, independientemente del modo que utilice para trasladarse, poniendo especial énfasis en los grupos en situación de vulnerabilidad por condición física, social, económica, género, edad u otra.

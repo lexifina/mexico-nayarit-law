@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE ABRIL DE 2024)
+Artículo 85 Bis. El Estado y los Municipios implementarán auditorías e inspecciones, como parte de instrumentos preventivos, correctivos y evaluativos, que analicen la operación de la infraestructura de movilidad e identifiquen las medidas necesarias que se deben emprender para que se cumplan los principios y criterios establecidos en la presente Ley, de conformidad con los lineamientos que para tal efecto emita el Sistema Nacional de Movilidad y Seguridad Vial.

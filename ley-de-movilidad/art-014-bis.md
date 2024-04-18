@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE ABRIL DE 2024)
+Artículo 14 Bis. En materia de prevención de siniestros de tránsito, se deberán establecer estrategias, planes y programas de infraestructura vial que, reconociendo la posibilidad del error humano y la interseccionalidad de los usuarios de la vía, se encaminen a evitar muertes, lesiones, incluidas en las que se adquiere alguna discapacidad, a través del mejoramiento de la infraestructura vial.

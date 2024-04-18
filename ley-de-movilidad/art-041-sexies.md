@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 17 DE ABRIL DE 2024)
+Artículo 41 Sexies. Las autoridades estatales y municipales deberán proporcionar a los Observatorios Ciudadanos de Movilidad la información sobre el proceso de reglamentación de la movilidad, del transporte y del tránsito, los planes de desarrollo urbano, de ordenamiento territorial metropolitanos, los actos administrativos y autorizaciones de uso de suelo, así como las bases de datos que forman la plataforma de información de la entidad federativa municipio, demarcación territorial y zona metropolitana.
+Los Observatorios Ciudadanos de Movilidad podrá (sic) llevar a cabo, de manera conjunta con el IPLANAY y los Institutos de Planeación Municipales, procesos de consulta y deliberación sobre temas de movilidad y seguridad vial.

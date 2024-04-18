@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE ABRIL DE 2024)
+Artículo 41 Quinquies. En el orden municipal, podrán conformarse Observatorios Ciudadanos en materia de Movilidad y Seguridad Vial. Los Ayuntamientos establecerán en sus respectivos reglamentos las disposiciones específicas a que se sujetará la creación y operación de los Observatorios Ciudadanos en Materia de Movilidad y Seguridad Vial para el respectivo municipio, con base en la Ley General y esta Ley.

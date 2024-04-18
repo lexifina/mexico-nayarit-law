@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE ABRIL DE 2024)
+Artículo 158 Bis. La Secretaría y los Ayuntamientos podrán regular y ordenar la circulación de vehículos mediante el establecimiento de modalidades al flujo vehicular en días, horarios y vías, cuando así lo estimen pertinente, con objeto de mejorar las condiciones ambientales, de salud y de seguridad vial en puntos críticos o derivado de la realización de otras actividades públicas.
