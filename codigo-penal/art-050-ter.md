@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE MAYO DE 2024)
+ARTÍCULO 50 TER.- En caso de delitos cometidos en el seno, con la colaboración, a través o por medio de empresas, organizaciones, grupos o cualquier otra clase de entidades o agrupaciones de personas que, por carecer de personalidad jurídica, no estén comprendidas en las fracciones I y II del artículo 38 Bis, se les podrá aplicar las penas o medidas de seguridad previstas en el artículo 87 de este Código.

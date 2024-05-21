@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE MAYO DE 2024)
+ARTÍCULO 38 DECIES.- Para los efectos de lo previsto por este Código, a las personas jurídicas podrá imponérseles alguna o varias de las penas, medidas de seguridad o consecuencias previstas en este Código, cuando hayan sido declaradas responsables penalmente respecto de alguno o algunos de los delitos dolosos o culposos, y en su caso, de la tentativa de los primeros, previstos en este Código.

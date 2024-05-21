@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE MAYO DE 2024)
+ARTÍCULO 40 BIS.- Habrá reincidencia de una persona jurídica, cuando la misma se actualice en los términos del artículo anterior, respecto a cualquiera de los sujetos activos cualificados señalados en el artículo 38 Bis de este Código, siempre y cuando el sujeto activo haya actuado por medio de la misma persona jurídica en cualquiera de los supuestos previstos en las fracciones I y II de dicho artículo 38 Bis.
