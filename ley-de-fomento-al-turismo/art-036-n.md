@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE JULIO DE 2025)
+ARTICULO 36 N.- La Secretaría con el objeto de optimizar la calidad y competitividad de los Servicios Turísticos, promoverá la certificación, así como el otorgamiento de distintivos, sellos, insignias y reconocimientos a los Prestadores de Servicios Turísticos que se distingan por adoptar mejores prácticas en sus procesos o altos estándares en sus servicios, a través de un proceso de autoevaluación y supervisión por parte de la Secretaría.

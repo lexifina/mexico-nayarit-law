@@ -25,5 +25,17 @@ XXII. Identificar las necesidades de señalización en las vías de acceso a los
 XXIII. Coadyuvar con los comités ciudadanos que tengan enfoque en materia turística, como es el caso del Comité de Pueblo Mágico y el Consejo Consultivo Municipal, dando seguimiento a las gestiones articuladas;
 XXIV. Gestionar la capacitación, actualización y profesionalización de los prestadores de servicios turísticos de las organizaciones y empresas de los sectores público, social y privado;
 XXV. Requerir a los prestadores de servicios turísticos, el cumplimiento de sus obligaciones establecidas en la Ley, así como de la Ley General de Turismo, las Normas Oficiales Mexicanas, las Normas Estatales, reglamentaciones y demás disposiciones jurídicas aplicables, en caso de incumplimiento, se deberá dar vista a la Secretaría a la inmediatez posible, para que esta pueda aplicar la sanción correspondiente;
-XXVI. Coordinar el seguimiento, actualización y obtención de la ocupación hotelera de los destinos turísticos de su competencia, verificando que la información estadística sea veraz y confiable, y
-XXVII. Las demás previstas en esta Ley y su reglamento.
+(REFORMADA, P.O. 15 DE JULIO DE 2025)
+XXVI. Coordinar el seguimiento, actualización y obtención de la ocupación hotelera de los destinos turísticos de su competencia, verificando que la información estadística sea veraz y confiable;
+(REFORMADA [N. DE E. ADICIONADA], P.O. 15 DE JULIO DE 2025)
+XXVII. Informar a la Secretaría de manera trimestral de las actividades desarrolladas dentro de los Consejos Consultivos Municipales según corresponda;
+(ADICIONADA, P.O. 15 DE JULIO DE 2025)
+XXVIII. Realizar verificaciones para el cumplimiento de las normas turísticas, y requerir a los prestadores de servicios turísticos, el cumplimiento de sus obligaciones establecidas en la Ley, así como de la Ley General de Turismo, las Normas Oficiales Mexicanas, las Normas Estatales, reglamentaciones y demás disposiciones jurídicas aplicables;
+(ADICIONADA, P.O. 15 DE JULIO DE 2025)
+XXIX. Coadyuvar con la autoridad competente en la regulación del funcionamiento de establecimientos ubicados en zonas de playa, a fin de prevenir actividades ilícitas y contribuir a la seguridad de la población y del turismo;
+(ADICIONADA, P.O. 15 DE JULIO DE 2025)
+XXX. Informar de manera trimestral a la Secretaría, los datos del registro de vendedores ambulantes autorizados en su ámbito de competencias en Zonas de Alto Impacto Turístico;
+(ADICIONADA, P.O. 15 DE JULIO DE 2025)
+XXXI. Promover, en coordinación con las autoridades competentes, que en las zonas turísticas se prohíba el consumo de narcóticos, estupefacientes, psicotrópicos y demás sustancias o vegetales enervantes dentro de los establecimientos de prestadores de servicios turísticos, y
+(ADICIONADA [N. DE E. REFORMADA], P.O. 15 DE JULIO DE 2025)
+XXXII. Las demás previstas en esta Ley y demás disposiciones reglamentarias.

@@ -17,8 +17,8 @@ d) Perfil socioeconómico del Turista o Visitante;
 e) Gasto promedio;
 f) Tendencias del sector, y
 g) Cualquier información turística que requiera la Secretaría en los términos y condiciones que disponga, a efecto de elaborar indicadores oportunos, confiables y objetivos, que aporten a mejorar las condiciones del Estado.
-(REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
-VI. Inscribirse en el Registro Estatal de Turismo y tramitar, obtener y actualizar la Cédula Estatal de Calidad e Imagen Turística respectiva en los términos y condiciones que la Secretaría disponga, a efecto de que sus servicios puedan operar con plenitud en territorio Nayarita;
+(REFORMADA, P.O. 15 DE JULIO DE 2025)
+VI. Inscribirse en el Registro Estatal de Turismo y contar con la Cédula Estatal de Calidad e Imagen Turística, en los términos del reglamento respectivo;
 (REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
 VII. Exhibir en lugar visible la Cédula Estatal de Calidad e Imagen Turística;
 (REFORMADA, P.O. 20 DE OCTUBRE DE 2023)
@@ -43,10 +43,16 @@ XVI. Enterar el efectivo cumplimiento del pago al impuesto sobre el hospedaje a 
 XVII. Prestar servicios atendiendo lo establecido en la presente Ley, la Ley General del Equilibrio Ecológico y la Protección al Ambiente, así como la Ley General de Vida Silvestre, y demás legislación en la materia;
 (ADICIONADA, P.O. 20 DE OCTUBRE DE 2023)
 XVIII. Acatar las resoluciones emitidas por la Secretaría en materia turística;
-(ADICIONADA, P.O. 20 DE OCTUBRE DE 2023)
-XIX. Cumplir con los convenios o acuerdos que celebre la Secretaría, con instancias estatales o federales, y
-(ADICIONADA [N. DE E. REUBICADA], P.O. 20 DE OCTUBRE DE 2023)
-XX. Las demás que establezcan esta Ley y otras disposiciones legales y reglamentarias aplicables.
+(REFORMADA, P.O. 15 DE JULIO DE 2025)
+XIX. Cumplir con los convenios o acuerdos que celebre la Secretaría, con instancias estatales o federales;
+(REFORMADA [N. DE E. ADICIONADA], P.O. 15 DE JULIO DE 2025)
+XX. Obtener la certificación como prestador de servicios turísticos;
+(ADICIONADA, P.O. 15 DE JULIO DE 2025)
+XXI. Garantizar una buena atención tanto para los visitantes como para los residentes locales en los términos del reglamento respectivo;
+(ADICIONADA, P.O. 15 DE JULIO DE 2025)
+XXII. En el caso de los Guías Turísticos para desempeñar el ejercicio de su actividad deberán obtener una acreditación o certificación según corresponda, de conformidad a esta Ley y el reglamento respectivo, y
+(ADICIONADA [N. DE E. REFORMADA], P.O. 15 DE JULIO DE 2025)
+XXIII. Las demás que establezca esta Ley y otras disposiciones legales y reglamentarias aplicables.
 (REFORMADA SU DENOMINACIÓN, P.O. 20 DE OCTUBRE DE 2023)
 CAPÍTULO II
 De los Consejos Consultivos y de la conferencia

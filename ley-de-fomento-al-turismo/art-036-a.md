@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 15 DE JULIO DE 2025)
+ARTICULO 36 A.- Las Zonas de Alto Impacto Turístico, son las áreas específicas que destacan por su potencial turístico significativo en el Estado de Nayarit, mismas que se caracterizan por recibir un flujo de visitantes que excede al doble más uno de su población local y que dada a esta alta afluencia, requieren una atención especial para asegurar tanto su desarrollo sostenible como el bienestar de sus residentes.
+Las Zonas de Alto Impacto Turístico, se establecerán anualmente durante el mes de enero, mediante declaratoria específica que emitirá la persona titular del Poder Ejecutivo Estatal, a propuesta de la Secretaría, dicha declaratoria deberá ser publicada en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
