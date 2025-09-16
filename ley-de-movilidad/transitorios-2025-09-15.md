@@ -1,0 +1,3 @@
+P.O. 15 DE SEPTIEMBRE DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO QUE REFORMA DIVERSAS FRACCIONES DE LOS ARTÍCULOS 44, 184 Y 294 DE LA LEY DE MOVILIDAD DEL ESTADO DE NAYARIT, EN MATERIA DE LENGUAJE INCLUSIVO Y ARMONIZACIÓN NORMATIVA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
