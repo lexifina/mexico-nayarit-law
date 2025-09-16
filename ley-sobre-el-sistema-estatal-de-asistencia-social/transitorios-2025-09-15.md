@@ -1,0 +1,3 @@
+P.O. 15 DE SEPTIEMBRE DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO QUE REFORMA DIVERSAS DISPOSICIONES DE LA LEY SOBRE EL SISTEMA ESTATAL DE ASISTENCIA SOCIAL, EN MATERIA DE LENGUAJE INCLUSIVO, ACTUALIZACIÓN Y ARMONIZACIÓN NORMATIVA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
