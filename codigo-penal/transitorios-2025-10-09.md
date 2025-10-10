@@ -1,0 +1,3 @@
+P.O. 9 DE OCTUBRE DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO QUE REFORMA Y ADICIONA EL ARTÍCULO 140 DEL CÓDIGO PENAL PARA EL ESTADO DE NAYARIT, EN MATERIA DE IMPRESCRIPTIBILIDAD DE LOS DELITOS DE NATURALEZA SEXUAL CONTRA NIÑAS, NIÑOS Y ADOLESCENTES".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
