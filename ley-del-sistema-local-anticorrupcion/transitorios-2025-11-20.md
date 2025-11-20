@@ -1,0 +1,5 @@
+P.O. 20 DE NOVIEMBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA DIVERSAS DISPOSICIONES DE LA LEY DEL SISTEMA LOCAL ANTICORRUPCIÓN DEL ESTADO DE NAYARIT, EN MATERIA DE ARMONIZACIÓN CON EL PODER JUDICIAL LOCAL".]
+PRIMERO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO. De conformidad con el Decreto que Reforma, Adiciona y Deroga diversas disposiciones de la Constitución Política del Estado Libre y Soberano de Nayarit, en materia de Transparencia y Protección de Datos Personales, publicado con fecha 24 de julio de 2025, en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit, la persona titular del Instituto de Transparencia y Acceso a la Información Pública del Estado de Nayarit, formará parte del Comité Coordinador del Sistema Local Anticorrupción, hasta en tanto no se realicen las adecuaciones secundarias a la Ley de Transparencia y Acceso a la Información Pública del Estado de Nayarit.
+TERCERO. Quedan sin efecto todas las disposiciones que se opongan al presente Decreto.
