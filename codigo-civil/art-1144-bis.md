@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 20 DE NOVIEMBRE DE 2025)
+Artículo 1144 Bis.- No prescribirá para la víctima u ofendido la acción de responsabilidad civil ni el derecho a obtener la reparación del daño moral que derive de la comisión de los delitos previstos en los artículos 230, 233, 234, 238 Bis, 289, 289 Bis, 291, 293, 294, 295, 296, 297, 297 Bis, 297 Ter, 297 Quáter, 297 Sexties, 302 y 305 del Código Penal para el Estado de Nayarit, cuando éstos se hayan cometido en contra de niñas, niños o adolescentes.
+La imprescriptibilidad a que se refiere el párrafo anterior operará sin perjuicio de las demás formas de reparación previstas en este Código y en las leyes aplicables, y deberá atender al interés superior de la niñez y a la protección integral de las víctimas.
