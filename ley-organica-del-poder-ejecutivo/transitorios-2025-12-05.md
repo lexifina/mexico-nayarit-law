@@ -1,0 +1,7 @@
+P.O. 5 DE DICIEMBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA EL ARTÍCULO 40 B DE LA LEY ORGÁNICA DEL PODER EJECUTIVO DEL ESTADO DE NAYARIT".]
+Primero. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+Segundo. Se derogan todas las disposiciones legales que se opongan al presente Decreto.
+Tercero. En un plazo de 180 días hábiles contados a partir de la entrada en vigor del presente Decreto la Secretaría de Seguridad y Protección Ciudadana del Estado, deberá realizar las adecuaciones normativas necesarias para el cumplimiento del presente instrumento.
+Cuarto. Los centros penitenciarios tendrán 180 días hábiles contados a partir de la entrada en vigor del presente Decreto para establecer los procedimientos y tecnologías de inhibición de entrada y salida de llamadas de telefonía celular, de radiocomunicación, de transmisión de voz, datos o imagen a que se refiere el artículo 38 de la Ley General para Prevenir, Investigar y Sancionar los Delitos en Materia de Extorsión, Reglamentaria de la fracción XXI del artículo 73 de la Constitución Política de los Estados Unidos Mexicanos.
+Quinto. Las erogaciones que, en su caso, se generen con motivo de la entrada en vigor del presente Decreto se realizarán con cargo al presupuesto aprobado de los sujetos obligados por este instrumento, por lo que no incrementarán su presupuesto regularizable y no se autorizarán recursos adicionales para el presente ejercicio fiscal.

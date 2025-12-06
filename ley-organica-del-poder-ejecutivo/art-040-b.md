@@ -72,7 +72,9 @@ XXXV. Llevar a cabo el registro y control de vehículos que estén dados de alta
 XXXVI. Organizar y supervisar las corporaciones de tránsito del Estado, en los términos de la Constitución Política de los Estados Unidos Mexicanos, la particular del Estado, las leyes y los convenios respectivos;
 (F. DE E., P.O. 28 DE JUNIO DE 2019)
 XXXVII. Administrar y vigilar el tránsito en las carreteras y caminos de jurisdicción estatal, y aplicar, en su caso, las sanciones que correspondan en los términos que señalen las leyes, reglamentos y convenios respectivos;
-(F. DE E., P.O. 28 DE JUNIO DE 2019)
-XXXVIII. Supervisar y controlar el tránsito vehicular y peatonal, conforme lo disponga la ley y los convenios respectivos, y
-(F. DE E., P.O. 28 DE JUNIO DE 2019)
-XXXIX. Las demás que le atribuyan expresamente las leyes, reglamentos, convenios y las que le confiera el Gobernador.
+(REFORMADA, P.O. 5 DE DICIEMBRE DE 2025)
+XXXVIII. Supervisar y controlar el tránsito vehicular y peatonal, conforme lo disponga la ley y los convenios respectivos;
+(REFORMADA [N. DE E. ADICIONADA], P.O. 5 DE DICIEMBRE DE 2025)
+XXXIX. Planear y ejecutar acciones coordinadas para prevenir, investigar y perseguir la extorsión en su ámbito de competencia; generar inteligencia operativa; realizar acciones que fortalezcan el cumplimiento de la Ley General para Prevenir, Investigar y Sancionar los Delitos en Materia de Extorsión, Reglamentaria de la Fracción XXI del Artículo 73 de la Constitución Política de los Estados Unidos Mexicanos; utilizar los mecanismos de coordinación del Sistema Nacional de Seguridad Pública; emitir los protocolos de actuación necesarios para la prevención, atención e investigación del delito de extorsión, comprendiendo la actuación policial en primeros contactos, el manejo de denuncias anónimas, la investigación en modalidades presencial, telefónica y digital, la coordinación con autoridades federales y municipales cuando corresponda, y
+(ADICIONADA [N. DE E. REUBICADA], P.O. 5 DE DICIEMBRE DE 2025)
+XL. Las demás que le atribuyan expresamente las leyes, reglamentos, convenios y las que le confiera el Gobernador.
