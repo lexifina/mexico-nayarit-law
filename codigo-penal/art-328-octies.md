@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE DICIEMBRE DE 2025)
+ARTÍCULO 328 Octies.- Cuando derivado de la comisión de los delitos en materia de extorsión y otros delitos vinculados, previstos en el presente Código, el sujeto activo espontáneamente se desistiere de la obtención del beneficio o lucro exigido dentro de los tres días siguientes a la exigencia realizada, y sin que se haya presentado alguna de las circunstancias agravantes del delito, la pena disminuirá hasta en una mitad.

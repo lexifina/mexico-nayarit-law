@@ -1,15 +1,12 @@
-(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2024)
-ARTÍCULO 328 Bis.- La pena prevista en el artículo anterior se aumentará hasta en una mitad cuando se actualice cualquiera de los siguientes supuestos:
-I. Intervengan dos o más personas.
-II. Se cometa en contra de una persona menor de edad, persona mayor de sesenta años, persona con alguna discapacidad, migrante, indígena o mujer en estado de gravidez.
-III. Si se utiliza como medio comisivo la vía telefónica, el correo electrónico o cualquier otro medio de comunicación electrónica.
-IV. Cuando el sujeto activo del delito se encuentre privado de su libertad en un Centro Penitenciario Estatal o Federal, a disposición de cualquier autoridad.
-V. Cuando el sujeto activo del delito se ostente como integrante de una corporación policiaca, de seguridad pública o privada o de las fuerzas armadas.
-VI. Cuando el sujeto activo del delito se ostente como servidor público, en cualquier ámbito de gobierno.
-VII. Cuando el sujeto activo del delito tenga alguna relación de confianza, laboral, parentesco o de negocios con la víctima o con sus familiares.
-VIII. Cuando el sujeto activo del delito se ostente, por cualquier medio, como integrante de una asociación delictuosa o grupo criminal, real o ficticio.
-IX. Participen servidores públicos o trabajadores de instituciones privadas que tengan acceso a bancos de datos personales y que los utilicen o los sustraigan para sí o para terceros, con el objeto de cometer el delito de extorsión en cualquiera de sus modalidades. En caso de ser servidor público, se hará la destitución del empleo, cargo o comisión, así como la inhabilitación de diez a quince años para desempeñar cualquier cargo como servidor público.
-X. Cuando se utilicen a personas menores de edad o personas que no tengan la capacidad de comprender el hecho.
-XI. Cuando se cometa contra comerciantes, empresarios campesinos, ejidatarios, comuneros o empleados de estos.
-Cuando el responsable del delito sea miembro de alguna corporación policial pública o de seguridad privada, se estará además a lo dispuesto por el artículo 95 de este Código.
-Si se tratare de un miembro de las fuerzas armadas mexicanas en situación de retiro, además de lo anterior, se dará aviso e intervención mediante el desglose respectivo que lleve a cabo la autoridad investigadora, a la institución armada a que pertenezca el imputado para los efectos legales respectivos.
+(REFORMADO, P.O. 5 DE DICIEMBRE DE 2025)
+ARTÍCULO 328 Bis.- Las penas previstas en el artículo anterior se aumentarán de cuatro a ocho años de prisión, cuando en la comisión del delito de extorsión, se presente alguna de las circunstancias siguientes:
+I. El sujeto activo manifieste su pretensión de obtener un beneficio en especie, dinero o bienes, por concepto del cobro de cuotas o prestaciones de cualquier índole, adicionales a los conseguidos originalmente por el ilícito;
+II. Se cometa en contra de quien realice actividades comerciales, empresariales, industriales, agrícolas, ganaderas, pesqueras, de servicios públicos o privados;
+III. El sujeto activo por sí o en representación de un sindicato, agrupación o asociación, sea real o simulada, coaccione a la víctima para que contrate, obtenga o adquiera de otra persona, ya sea física o moral, bienes, insumos o servicios para el desarrollo de su actividad comercial. Esta agravante se consuma con independencia de que se concrete el acto de comercio coaccionado;
+IV. Se le imponga a la víctima el precio de los productos, bienes o servicios que comercializa;
+V. Se obligue por cualquier medio a la víctima a celebrar un acto jurídico, independientemente de su objeto;
+VI. Se exija que el beneficio económico o lucro indebido, sea depositado o transferido mediante el uso del sistema bancario o financiero mexicano o de cualquier otro país, sin importar la denominación de moneda, divisa o activos virtuales, que se utilice;
+VII. Cuando para lograr los fines de la extorsión se empleé a un tercero sin que tenga conocimiento del hecho delictivo;
+VIII. Cuando se utilice a dependencias o entidades de la Administración Pública Federal, estatal o municipal, sindicatos, asociaciones, cámaras empresariales, organizaciones civiles, ganaderas, del ramo de la construcción y demás instituciones u organismos, indebidamente, para coaccionar, amedrentar o presionar para realizar prácticas que no permita el libre consumo de los bienes o servicios necesarios para su desarrollo;
+IX. La conducta sea cometida en contra de alguna persona candidata a un cargo de elección popular o cuando sea electa, o
+X. Cuando se requiera la entrega de una cantidad de dinero o un beneficio en especie para sí o para un tercero, por encontrarse alguien en un supuesto riesgo, peligro inminente o procedimiento legal.
