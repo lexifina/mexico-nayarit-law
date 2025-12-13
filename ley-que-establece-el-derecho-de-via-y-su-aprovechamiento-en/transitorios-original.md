@@ -1,0 +1,7 @@
+TRANSITORIOS
+PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
+SEGUNDO. Se abroga la Ley que Establece el Derecho de Vía de una Carretera o Camino Local, publicada en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit, el día 2 de febrero de 1983.
+TERCERO. El titular del Poder Ejecutivo del Estado, deberá expedir el Reglamento correspondiente a la presente Ley, dentro de los ciento ochenta días siguientes, a la entrada en vigor de la misma.
+Dado en la Sala de Sesiones "Lic. Benito Juárez García" recinto oficial de este Honorable Congreso del Estado Libre y Soberano de Nayarit, en Tepic, su Capital, a los once días del mes de diciembre del año dos mil veinticinco.
+Dip. Hilda Zulema Montoya García, Presidenta.- Rúbrica.- Dip. Nadia Alejandra Ramírez López, Secretaria.- Rúbrica.- Dip. Diego Cristóbal Calderón Estrada, Secretario.- Rúbrica.
+Y en cumplimiento a lo dispuesto en la Fracción II del Artículo 69 de la Constitución Política del Estado, y para su debida observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo de Nayarit, en Tepic su capital, a los doce días del mes de diciembre de dos mil veinticinco.- DR. MIGUEL ÁNGEL NAVARRO QUINTERO, Gobernador Constitucional del Estado.- Rúbrica.- Dra. en D. Rocío Esther González García, Secretaria General de Gobierno.- Rúbrica.
