@@ -15,5 +15,9 @@ XI.- Asignar las plazas con funciones de dirección y de supervisión sujetas al
 XII.- Informar a la autoridad educativa federal, en los plazos que ésta determine, respecto a la asignación de plazas, en los procesos de selección para la admisión y promoción;
 XIII.- Operar y, en su caso, diseñar programas locales o regionales de reconocimiento para el personal docente, técnico docente, de asesoría técnica pedagógica y el personal con funciones de dirección o de supervisión que se encuentren en servicio, conforme a los criterios que al efecto emita la autoridad educativa federal;
 XIV.- Organizar y operar el Servicio de Asesoría y Acompañamiento a las escuelas de conformidad con los lineamientos generales que la autoridad educativa federal a (sic) determine;
-XV.- Para fortalecer las capacidades, conocimientos y competencias del personal de nuevo ingreso al servicio público educativo, realizar una valoración y reconocimiento diagnóstico, en los términos que señale la Ley respectiva, al término de su primer ciclo escolar, y
-XVI.- Las demás que le correspondan conforme a esta Ley y otras disposiciones aplicables.
+(REFORMADA, P.O. 17 DE DICIEMBRE DE 2025)
+XV.- Para fortalecer las capacidades, conocimientos y competencias del personal de nuevo ingreso al servicio público educativo, realizar una valoración y reconocimiento diagnóstico, en los términos que señale la Ley respectiva, al término de su primer ciclo escolar;
+(REFORMADA [N. DE E. ADICIONADA], P.O. 17 DE DICIEMBRE DE 2025)
+XVI.- Impulsar capacitaciones, talleres, foros y demás actividades de formación para maestras y maestros con la finalidad de fortalecer sus habilidades y conocimientos sobre el uso de herramientas tecnológicas aplicables en la alfabetización inicial, y
+(ADICIONADA [N. DE E. REUBICADA], P.O. 17 DE DICIEMBRE DE 2025)
+XVII.- Las demás que le correspondan conforme a esta Ley y otras disposiciones aplicables.
