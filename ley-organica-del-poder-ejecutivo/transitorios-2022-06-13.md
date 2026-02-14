@@ -1,5 +1,0 @@
-P.O. 13 DE JUNIO DE 2022.
-[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DEL PODER EJECUTIVO DEL ESTADO DE NAYARIT, EN MATERIA DE GOBIERNO DIGITAL".]
-PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
-SEGUNDO. En relación a la implementación de las políticas de gobierno digital en el Estado, una vez emitido el Reglamento de la Ley de Gobierno Digital para el Estado de Nayarit, se tendrá un plazo de noventa días naturales para emitir los lineamientos técnicos a los que hace referencia el presente Decreto.
-TERCERO. Se establece un periodo de dieciocho meses, contados a partir de la entrada en vigor del presente, para que se implementen de ser el caso, las medidas técnicas, administrativas, operativas, así como los ajustes presupuestales necesarios para la debida implementación, desarrollo y fomento de las políticas de Gobierno Digital; así como la implementación del Sistema Estatal de Información, Trámites y Servicios para la Ventanilla Única.

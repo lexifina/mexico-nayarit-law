@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE NOVIEMBRE DE 2010)
+ARTICULO 190 BIS. Para efectos de esta Ley se entiende por Cultura del Agua, al conjunto de creencias, conductas y estrategias comunitarias para el uso del agua, que sean reflejadas mediante políticas públicas, conforme a las condiciones socio-demográficas de las diferentes regiones del Estado, destinadas al uso y aprovechamiento racional y sostenible, realizadas por las autoridades competentes de aplicar este Ordenamiento.

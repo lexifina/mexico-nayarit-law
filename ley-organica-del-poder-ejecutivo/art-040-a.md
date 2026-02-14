@@ -1,1 +1,0 @@
-Artículo 40 A. (DEROGADO, P.O. 16 DE ENERO DE 2026)

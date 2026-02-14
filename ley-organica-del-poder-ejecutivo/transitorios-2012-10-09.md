@@ -1,0 +1,4 @@
+P.O. 9 DE OCTUBRE DE 2012.
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Se deroga cualquier disposición que se oponga al presente Decreto.
+TERCERO. Que derivado de la presente reforma, los rangos de consumo contemplado en el artículo 6° del Decreto Legislativo No. 880 publicado en el Periódico Oficial del Estado el 31 de diciembre 2011, relativo a la ley de Cuotas y Tarifas para la prestación de Servicios Públicos del Organismo Operador Intermunicipal Metropolitano de Agua Potable, Alcantarillado, Saneamiento y Servicios Conexos de los municipios de, Cerro de San Pedro, San Luis Potosí, serán los mismos aprobados por parte de este Poder Legislativo el pasado 30 de diciembre del año 2010, y publicados en el Periódico Oficial del Estado bajo el Decreto legislativo numero 485, en edición extraordinaria.

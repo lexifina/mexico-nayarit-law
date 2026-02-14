@@ -1,7 +1,0 @@
-P.O. 17 DE DICIEMBRE DE 2011.
-PRIMERO: El presente Decreto entrará en vigor el primero de enero de 2012.
-SEGUNDO: Dentro de un plazo de noventa días contados a partir de la entrada en vigor del presente decreto, la Secretaría de Educación expedirá su respectivo reglamento.
-TERCERO: A la entrada en vigor del presente Decreto, se realizará el traspaso de los recursos humanos, materiales, técnicos y financieros, de conformidad con el acuerdo de transferencia que al efecto disponga el Titular del Poder Ejecutivo.
-CUARTO: Los asuntos que con motivo de esta reforma deban pasar de la competencia de la Secretaría de Educación Básica y la Secretaría de Educación Media Superior, Superior e Investigación Científica y Tecnológica, a la Secretaría de Educación que se crea con este Decreto, permanecerán en el último trámite que hubieren alcanzado hasta que las unidades administrativas que los tramiten se incorporen a la nueva Secretaría.
-QUINTO: Cuando la ley haga referencia a alguna atribución conferida a la Secretaría de Educación Básica o a la Secretaría de Educación Media Superior, Superior e Investigación Científica y Tecnológica, se entenderá a favor de la Secretaría de Educación creada en el presente Decreto.
-SEXTO: Los servidores públicos adscritos a la Secretaría de Educación Básica y Secretaría de Educación Media Superior, Superior e Investigación Científica y Tecnológica, no resultarán afectados en sus derechos laborales adquiridos, al incorporarse a la nueva Dependencia.

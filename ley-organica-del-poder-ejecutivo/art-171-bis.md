@@ -1,0 +1,6 @@
+(REFORMADO PRIMER PÁRRAFO, P.O. 27 DE DICIEMBRE DE 2019)
+ARTICULO 171 BIS. Los ayuntamientos y los organismos operadores establecerán anualmente estímulos fiscales en beneficio: de las personas con discapacidad; de las personas adultas mayores; y de las mujeres que siendo madres solteras asuman en su totalidad el sustento económico de su hogar, así como el de sus hijas e hijos menores de edad, y que se encuentren en estado de desventaja social conforme a las disposiciones de la Ley de Asistencia Social para el Estado y Municipios de San Luis Potosí; estímulos de los que disfrutarán, según corresponda, y hasta por el cincuenta por ciento de los derechos causados.
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 2019)
+Para el acceso a los estímulos fiscales a que se refiere este artículo, los contribuyentes deberán acreditar fehacientemente su condición de acuerdo al mecanismo que establezca el ayuntamiento u organismo operador, siempre que se cuente con medidor y no se tengan adeudos.
+(ADICIONADO, P.O. 14 DE AGOSTO DE 2014)
+La deducción que resulte de la aplicación del estímulo fiscal en relación con el valor total de los derechos generados por la prestación del servicio público, se indicará en los recibos de pago en forma separada a la cantidad total a pagar por los usuarios.
