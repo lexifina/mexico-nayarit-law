@@ -1,0 +1,3 @@
+P.O. 13 DE FEBRERO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO QUE ADICIONA EL ARTÍCULO 146 BIS DE LA LEY DE DERECHOS Y JUSTICIA LABORAL PARA LOS TRABAJADORES AL SERVICIO DEL ESTADO DE NAYARIT, EN MATERIA DE INJERENCIA SINDICAL".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
