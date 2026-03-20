@@ -1,0 +1,3 @@
+P.O. 19 DE MARZO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSOS NUMERALES DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES PARA EL ESTADO DE NAYARIT, EN MATERIA DE IGUALDAD SUSTANTIVA Y PERSPECTIVA DE GÉNERO".]
+ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
