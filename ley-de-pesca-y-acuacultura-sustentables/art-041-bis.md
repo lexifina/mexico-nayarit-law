@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 31 DE MARZO DE 2026)
+Artículo 41 Bis.- El Comité de Sanidad Acuícola del Estado de Nayarit será una asociación civil integrada por personas productoras acuícolas y pesqueras de la entidad, cuyo objeto es coordinarse con la Secretaría en el ámbito de su competencia, para la planeación, ejecución y evaluación de acciones orientadas a la prevención, diagnóstico, control y erradicación de enfermedades que afecten a los recursos pesqueros y acuícolas, así como en la promoción de la inocuidad en la producción.
