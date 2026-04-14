@@ -8,5 +8,5 @@ d).- Proyectos estratégicos;
 e).- Líneas de acción;
 (REFORMADO, P.O. 11 DE MAYO DE 2022)
 f).- La participación directa de los diversos sectores sociales involucrados en el proceso educativo, y
-(ADICIONADO, P.O. 11 DE MAYO DE 2022)
-g).- Mecanismos para la paz y no violencia.
+(REFORMADO, P.O. 13 DE ABRIL DE 2026)
+g).- Mecanismos para la paz y las no violencias.
