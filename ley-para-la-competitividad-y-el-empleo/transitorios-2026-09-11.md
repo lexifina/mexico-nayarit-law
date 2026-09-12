@@ -1,0 +1,3 @@
+P.O. 11 DE SEPTIEMBRE DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO QUE REFORMA LAS FRACCIONES V Y VI Y ADICIONA LA FRACCIÓN VII DEL ARTÍCULO 9 DE LA LEY PARA LA COMPETITIVIDAD Y EL EMPLEO DEL ESTADO DE NAYARIT, EN MATERIA DE EMPRENDIMIENTO FEMENINO".]
+Único. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
