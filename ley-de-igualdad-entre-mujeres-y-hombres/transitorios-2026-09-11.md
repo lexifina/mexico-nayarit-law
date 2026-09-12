@@ -1,0 +1,3 @@
+P.O. 11 DE SEPTIEMBRE DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LOS ARTÍCULOS 15 Y 16 DE LA LEY DE IGUALDAD ENTRE MUJERES Y HOMBRES PARA EL ESTADO DE NAYARIT, EN MATERIA DE EMPRENDIMIENTO FEMENINO".]
+Único. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
