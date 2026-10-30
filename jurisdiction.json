@@ -1,0 +1,11 @@
+{
+  "path": "mx-nay",
+  "code": "MX-NAY",
+  "name": "Nayarit",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-nayarit-law",
+  "build": "built: constitution, codes and laws (155 ordenamientos, 1005 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
